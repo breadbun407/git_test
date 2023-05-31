@@ -2,13 +2,18 @@ import requests
 from bs4 import BeautifulSoup as bs
 
 with open('links.txt', 'r') as file:
-    link_names = file.read().splitlines()
+    link_names_list = file.read().splitlines()
 
+    base_url = 'https://dota2.fandom.com'  # Replace with the base URL of the website
 
+    complete_urls = []
+    for urls in link_names_list:
+        complete_url = base_url + urls
+        complete_urls.append(complete_url)
 
     # Making a GET request
-    URL = 'https://dota2.fandom.com/' + link_names
-    response = requests.get(URL)
+    for url in complete_urls:
+        response = requests.get(url)
     if response.status_code == 200:
      # Parsing the HTML
         soup = bs(response.content, 'html.parser')
