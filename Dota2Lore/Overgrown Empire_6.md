@@ -1,1 +1,0 @@
-The monsoon weather causes sudden heavy downpours with lightnings and strong winds. They happen every randomly throughout the match and last a few minutes, although the first instance always happens at the 5th minute mark.

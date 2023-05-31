@@ -1,1 +1,0 @@
-Little is known about the Lesser Hells, other than it having sixty-four planes where eternal damnation awaits as punishment for those who fail certain conditions.

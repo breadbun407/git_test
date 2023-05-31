@@ -1,1 +1,0 @@
-Recluse Reef is a dangerous sector of ocean, with treacherous currents and sharp corals. Sharks and enormous barnacles grow among the reefs, capable of dragging down ships.  Tidehunter is familiar with the area.

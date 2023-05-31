@@ -1,0 +1,2 @@
+The Fae Realm is the hidden land of the Fae, who can shift in and out of it at ease. A place of ancient magic, the Fae Realm exists unseen all around the natural world. Revtel and several other locations in the Dota 2 world may be located in the Fae Realm, including Roseleaf, Iron Fog, and Weeping Rose.
+The parasitive stuntwood, a type of vine, may originate or grow in the Fae Realm, as it is considered an invasive species by the Fae.

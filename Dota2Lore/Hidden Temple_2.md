@@ -1,1 +1,0 @@
-Faerie Dragons have been known to visit the Hidden Temple.

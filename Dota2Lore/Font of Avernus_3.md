@@ -1,1 +1,0 @@
-Lord  Abaddon drank deeper than any from the Font, and has since become a supernatural being, a creature of the black mist. Abaddon states that it is the mist that controls him, not the other way around.

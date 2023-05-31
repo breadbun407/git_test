@@ -1,1 +1,0 @@
-These entities are alien to earth. They don't live here and they come from some other celestial body or another plane of existence before arriving on this planet.

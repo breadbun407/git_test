@@ -1,1 +1,0 @@
-Almost as an afterthought,  Warlock summoned a demon spirit from the Outer Hells into his demonic Dreadwood staff.

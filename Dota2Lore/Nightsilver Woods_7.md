@@ -1,1 +1,0 @@
-A great number of beasts inhabit the forest, including Owlions, litigons, and Nova,  Luna's mount. A griffin was also once found in the Nightsilver Woods. It later became Mirana's mount.

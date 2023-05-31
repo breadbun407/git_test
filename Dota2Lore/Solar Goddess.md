@@ -1,0 +1,3 @@
+The Solar Goddess is an unnamed deity, worshiped by the inhabitants of the eastern Scintillant Waste.
+Acolytes of the Solar Goddess believe the sun provides the world with warming love. Lina once traveled to study the arts of flame with the acolytes, who believed the her hair was blessed by the light. The acolyte gave her trinkets to wear in her hair, and reflect the light of the sun. It is rumored that in a moment of divine blessing, the Solar Goddess herself descended to bless Lina with her power, and granted her flowing robes and golden medallions as a gift.
+Her worshipers also forge items out of gold, often dedicated to their goddess.

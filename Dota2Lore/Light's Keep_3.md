@@ -1,1 +1,0 @@
-The Keeper of this place,  Keeper of the Light originates from this place to accomplish his noble quest. When he dies and his light gets snuffed out, he gets sent back to this place  to have his light restored and be restored to life once more.

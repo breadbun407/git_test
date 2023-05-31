@@ -1,0 +1,2 @@
+Njord's Hearth is an unusually warm, forested domain in the north, possibly in or near the lands of Icewrack. Despite its cold surroundings, the domain is said to experience eternal spring. Its inhabitants wear their hair in braids, and fashion tools and instruments from wood.
+Lyralei, the  Windranger once visited Njord's Hearth, where, despite overwhelming odds, she saved a doomed forest from an unknown threat. For her deeds, she was blessed by a grateful spirit, and the people of Njord's Hearth awarded her a golden circlet.

@@ -1,1 +1,0 @@
-The Hoven is a large forest located at the base of the Bleeding Hills. The woodland is approximately one thousand leagues wide, and replete with pools of black tar, which flow down from the Bleeding Hills. Ancient trees are found in the forest, whose wood is sometimes used to craft shields and armor.

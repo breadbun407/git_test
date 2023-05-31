@@ -3,6 +3,10 @@ import re
 import requests
 from bs4 import BeautifulSoup as bs
 
+def sanitize_file_name(name):
+    sanitized_name = re.sub(r'[<>:"/\\|?*%]', '_', name)
+    return sanitized_name
+
 with open('links.txt', 'r') as file:
     link_names_list = file.read().splitlines()
 
@@ -31,19 +35,20 @@ for url in complete_urls:
         if not os.path.exists(directory):
             os.makedirs(directory)
 
+        current_title = ''
+        current_file_path = ''
+
         for idx, paragraph in enumerate(paragraphs):
-            # Remove references in the form of [1], [2], etc.
-            text = re.sub(r'\[\d+\]', '', paragraph.get_text())
+            if title == current_title:
+                # Append the paragraph to the current file
+                with open(current_file_path, 'a') as file:
+                    file.write(paragraph.get_text(strip=True) + '\n')
+            else:
+                # Generate a new file for a different title
+                current_title = title
+                filename = f"{title}.md"
+                sanitized_filename = sanitize_file_name(filename)
+                current_file_path = os.path.join(directory, sanitized_filename)
 
-            # Add a space after a bold tag if the text is directly wrapped by <b> tags
-            if '<b>' + text + '</b>' == paragraph.prettify():
-                text = ' ' + text + ' '
-
-            # Trim leading and trailing whitespace
-            text = text.strip()
-
-            filename = f"{title}_{idx + 1}.md"
-            file_path = os.path.join(directory, filename)
-
-            with open(file_path, 'w') as file:
-                file.write(text)
+                with open(current_file_path, 'w') as file:
+                    file.write(paragraph.get_text(strip=True) + '\n')

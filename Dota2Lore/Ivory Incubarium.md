@@ -1,0 +1,3 @@
+In another universe, the Ivory Incubarium was an ancient school situated at the top of the hollow peaks of Zealot's Range. Here, the Oracles are bred and birthed from the Pallid Sybils who raise and train them until they have come into their own. The Oracles of this place are exclusively purchased by the Cymurri and then escorted to the Gate of the Graven King where they will be of service to the Graven King and his Cymurri Advisors.
+Early in his career, Nerif described an ominous dream where the Incubarium was crushed in an avalanche. It eventually came true and news of its destruction arrived within hours which shocked the Cymurri Advisors.
+While the claim surrounding its origin is dubious, the  Aeon Disk is said to have been smuggled out of the Ivory Incubarium.

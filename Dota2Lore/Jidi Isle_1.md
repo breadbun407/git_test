@@ -1,1 +1,0 @@
-The Jidi Isle is a large island, known for its dangerous Acid Jungles. It is surrounded by or next to the Bay of Fradj. Highly venomous lifeforms have evolved on the isle, including toxic vines and poisonous reptiles. The Enchanted Mango also comes from the area and is irresistible to the native amphibians.

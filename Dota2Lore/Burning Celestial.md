@@ -1,0 +1,1 @@
+The Burning Celestial is one of the celestials. Impressed by the teachings of Xin, he entered the Fortress of Flares, fused his body into Xin's ashes, creating the new entity known as the  Ember Spirit. It is said that he was motivated by a forboding sense of impending conflict, which he intends to take part in.

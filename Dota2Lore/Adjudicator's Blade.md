@@ -1,0 +1,1 @@
+The Adjudicator's Blade is a weapon wielded by Sven, who used it to cleave Yurnero's mask in half. This action caused ancient spirits to awaken inside Yurnero, making him more powerful than ever before. Because of this, Yurnero is grateful for Sven's actions. It is unknown where the blade originates, and it is also unknown who the "Adjudicator" is.

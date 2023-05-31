@@ -1,1 +1,0 @@
-Beatrix Snapfire once fled into the Dread Marsh to get away from pursuers, after which she made it into the outlands.

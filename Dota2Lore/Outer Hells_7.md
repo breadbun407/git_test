@@ -1,1 +1,0 @@
-It's unknown if the Outer Hells are part of the Seven Hells or not. It's also unknown if they are related to the Lesser Hells.

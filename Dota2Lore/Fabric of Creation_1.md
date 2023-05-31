@@ -1,1 +1,0 @@
-The Fabric of Creation is an important world structure of Dota 2.

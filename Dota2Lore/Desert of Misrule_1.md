@@ -1,1 +1,0 @@
-The Desert of Misrule is located either within or to the west of the Scintillant Waste. It is a hot, barren land, and is home to Desert Wyrms.

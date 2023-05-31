@@ -1,1 +1,0 @@
-The Astral Plane is one of The Seven Planes.  Elder Titan is able to call his  Astral Spirit from the Astral Plane. Enchanted alloys can be found in Astral Plane, and used to craft weapons.

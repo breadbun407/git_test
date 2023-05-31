@@ -1,0 +1,3 @@
+Pole is a village, and the hometown of  Phantom Lancer. The villagers of Pole were conscripted to fight Vorn, the Dread Magus. The people of Pole are simple, peaceful and catch fish with spears. Settlers came to the village long ago, where they fought off "nightly terrors".
+The waters near Pole are filled with fish large enough to eat an man in a single bite. One of these giant fish may be Niuhi. Wildwings also live near Pole. The villagers honor all animals that they take for food.
+After defeating Vorn, Azwraith decided not to return to Pole, even though he would be welcomed with open arms. This is because he believes that there would be no place for his phantom illusions.

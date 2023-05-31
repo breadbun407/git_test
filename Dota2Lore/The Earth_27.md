@@ -1,1 +1,0 @@
-Aktok is an ancient serpent god destined to swallow the entire world once he awakens from his dormant state.

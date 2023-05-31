@@ -1,0 +1,1 @@
+Ol' Rackatee is Beatrix Snapfire's shotgun. It comes with three barrels and fires shots in a cone. Beatrix made it as a means of protection when she ventured into the Outlands. It is one of her favorite weapons.

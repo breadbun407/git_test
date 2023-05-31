@@ -1,1 +1,0 @@
-Little is known about the Outer Hells, besides it being the home of the golem demons summoned by Warlock's  Chaotic Offerings. Warlock mentions the Outer Hells from where he summons his demons as “dark eternities” which implies its dark and eternal properties.

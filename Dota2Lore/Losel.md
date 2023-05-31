@@ -1,0 +1,1 @@
+Losel, the Relic Slayer is a mysterious character. He has been causing chaos in Iron Fog. According to Lorlin Lasan, some  wealthy entities want him dead and the Jasper Circle is willing to offer protection.

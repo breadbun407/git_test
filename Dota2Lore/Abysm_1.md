@@ -1,1 +1,0 @@
-Abysm is a location in the Dota 2 world, similar to Hell. It is home to Nevermore. Souls harvested by Nevermore swirl in and out of the Abysm, and none has ever dared to peer into its endless depths. The Abysm is filled with "astral rocks", though what exactly this infers about the place is unknown. Nevermore also refers to the Abysm as "The Rift".

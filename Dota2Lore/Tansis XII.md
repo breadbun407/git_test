@@ -1,0 +1,1 @@
+Tansis XII was a king of Candoness. Little is known about him, save that he passed away before his son, Tansis XIII was coronated. His wife's name is unknown, only referred to as Dowager Queen Tansis XII after his death.

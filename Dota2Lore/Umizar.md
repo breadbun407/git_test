@@ -1,0 +1,3 @@
+Umizar are a species of lobster-like creatures. They are red and blue, possessing sharp, serrated mandibles, a large claw, and a fan-shaped tail. Their bodies are covered with overlapping plates of shell. Two long antennae grow out from their heads, and some have been observed charging an electrical current between their antennae.
+Umizars are likely to be sentient creatures, as they can be taken as prisoners, altough according to the  Tome of Knowledge, some cultures eat any Umizar prisoners they take.
+Umizar live beneath the sea, possibly around Crey.  Slark owns a discarded shell of an Umizar, which he uses as armor.

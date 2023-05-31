@@ -1,0 +1,1 @@
+Tybara was an assassin or bounty hunter who specialized in taking down targets with a single strike. Despite her talents, she often brought back her bounties alive. She was also one of Gondar's first mentors.

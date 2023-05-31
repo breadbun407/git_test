@@ -1,0 +1,1 @@
+The Transcendencies are a mysterious element, referred to only by Mercurial, who states that some behavior among the Transcendencies would be considered ignoble. This implies that the Transcendencies are a group of supernatural beings, possibly the same as the Ascendants.

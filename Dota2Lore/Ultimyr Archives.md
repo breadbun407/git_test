@@ -1,0 +1,8 @@
+The Ultimyr Archives is an extensive library belonging to the Ultimyr Academy or Ultimyr University.
+The archives contain many tomes of untranslatable spells, as well as bestiaries and biological treatises on dragon cladistics. One ancient book describes the entomological curiosities of the world, including the telepathic zealot scarab species, and the unique individual among them known as the Nyx Assassin. The zealot scarabs are a subject of great interest to those of Ultimyr and a newly discovered source of potential info regarding this species has been found beyond the lands of Ashkavor.
+Archivists have recovered lost texts containing the oldest depictions of Kaldr, accompanied by unreadable text written in an extinct language. An unnamed caster used a deciphering spell to unlock the mysteries of the text, but was driven utterly mad as a result. A ban was placed on any more decoding attempts, keeping its forbidden knowledge locked to the world once again.
+According to the  Tome of Knowledge, the Ultimyr Archives are the largest mortal-known archives of the arcane known to exist. This suggests that there are even bigger such archives outside of the possession of mortals.
+Warlock is the archives' Chief Curator and Head of Acquisitions. He is a custodian for the arcane archive's contents and is always acquiring new items of information (ex. books, texts, tomes, incunabula, etc.) to expand the archives.
+There is a board of overseers aptly named the Ultimyr Board of Overseers. Just like Demnok, they are responsible for acquiring new information for the archives.
+Windranger once visited the archives to do some research on unknown subjects.
+Rubick plans to visit Ultimyr Academy soon, likely to access its archives.

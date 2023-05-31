@@ -1,1 +1,0 @@
-The Barrier is a series of mountains located in the extreme north. It is an icy landscape of peaks and glaciers, preceded by frozen tundras and Icewrack to the south. The locations of Cobalt, White Fields, and Wolfsden Tavern are all nearby. The Frost Brigade, a military contingent, may also be located around The Barrier.

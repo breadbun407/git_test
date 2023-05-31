@@ -1,0 +1,1 @@
+The Thorny Wastes is a land of brambles, frequently visited by Black Arachnia. Here, she conceals herself with a thorny shell, and stalks the land in search of a special prey required to nourish her young.

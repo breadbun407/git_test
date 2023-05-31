@@ -1,0 +1,1 @@
+The Sapphire Archons are a faction in Dota 2. Pierpont is the only named member, and was once possibly a mentor to Rylai. Mireska wishes to find a Sapphire Archon, possibly due to her lust for jewels and treasure.

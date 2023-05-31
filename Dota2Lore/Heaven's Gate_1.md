@@ -1,1 +1,0 @@
-Heaven's Gate was the location of a cataclysmic battle. It is believed to be somewhere in the sky, or on the Mad Moon. After the battle, the Blade of Worlds was shattered, and fell to earth, where its largest piece was made into the Demon Shard.

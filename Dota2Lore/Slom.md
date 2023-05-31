@@ -1,0 +1,5 @@
+Slom was a kingdom. It was a society divided into castes, with families like the House of Ambry making up part of the important landed caste. A royal menagerie of wondrous beasts was kept by its King.
+Prior to its fall, Slom was at war with the kingdom of Elze. A road links Elze with Slom, with many taverns along the way. This suggests that the two rival kingdoms may have been neighbors. Not much is known about the climate of Slom, except that it occasionally snows nearby.
+The Last King of Slom grew increasingly eccentric, demanding exotic beasts and surrounding himself with sorcerers. Sensing avarice behind the throne, the House of Ambry rose up against the King, sending six thousand warriors to take the capital. This rebellion failed, resulting in the Massacre of the Apostates. The King then had Lord Ambry executed, and had his son Banehallow cursed with lycanthropy.
+Soon after, Karroch, who worked in the royal menagerie, set all the beasts in the menagerie loose, mauling the king in the process. The kingdom of Slom fell after its last king died.
+Fell-deer and Hellwether rams are found around the former lands of Slom.

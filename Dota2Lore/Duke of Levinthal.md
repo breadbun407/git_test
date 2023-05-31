@@ -1,0 +1,1 @@
+The Duke of Levinthal was a ruler of Levinthal, and Elector of the Gleaming City. His personal name is unknown. In an attempt to resist the armies of Ostarion, he rode out of his city and engaged the Wraith King in single combat, during which he was slain. The Duke's large sword, now broken, is all that remains of his legacy.

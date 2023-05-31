@@ -1,0 +1,2 @@
+Sven's father was a member of the Vigil Knights order. He was executed after violating the Vigil Codex, likely for siring a child with a meranth.  Sven later took revenge for his father by destroying the order's Sacred Helm, stealing the Outcast Blade, and burning the Vigil Codex in the order's Holy Flame.
+Sven's Father once owned the transforming Sword of the Warrior's Retribution, which passed onto his son after his death.

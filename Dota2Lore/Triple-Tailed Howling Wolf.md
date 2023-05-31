@@ -1,0 +1,1 @@
+The Triple-Tailed Howling Wolf is a species of wolf, likely living in the north. They have three tails, and are hunted by the Frosted Winds Tribe. Wolf pelts are used to making caps, as well as headgear. Kardel Sharpeye owns one such set of armor.

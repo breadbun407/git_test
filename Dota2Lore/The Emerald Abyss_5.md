@@ -1,1 +1,0 @@
-The Abyssal Horde, led by Vrogros, the  Underlord, fought a battle in the Emerald Abyss for supremacy over its middle ground. He claimed a prized emerald blade during this battle, which he now keeps in the obsidian city of Aziyog.

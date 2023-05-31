@@ -1,0 +1,1 @@
+The Demon Edge was crafted by the Demon-Smith Abzidian. Its blade is made of Radiant Ore, and its hilt carved from Direstone. The weapon was so dangerous that it slew Abzidian when he tested it. The forces of the opposing Ancients fight for possession of the blade, although it can only be safely wielded by a hero.

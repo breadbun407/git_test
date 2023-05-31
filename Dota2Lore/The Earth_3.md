@@ -1,1 +1,0 @@
-Tectonic plates that continue to shift make the earth's surface and subterranean realms ever changing. Elder Titan credits Earthshaker as the “shaper” of Earth's continents.

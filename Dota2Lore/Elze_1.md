@@ -1,1 +1,0 @@
-Elze is a kingdom known for its religious fervor. It was at war with the kingdom of Slom. A road links Elze with Slom, with many taverns along the way. This suggests that the two rival kingdoms may have been neighbors. Rigwarl frequents these taverns, suggesting he might be from the area. Not much is known about the climate of Elze, except that it occasionally snows.

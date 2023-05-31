@@ -1,1 +1,0 @@
-The Endless Copse is a location in the world of Dota 2.

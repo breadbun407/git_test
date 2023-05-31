@@ -1,0 +1,2 @@
+The Titans are a race that existed since the beginning of creation, although they did not create the universe themselves. Imbued with the earlier energies of the universe, they set out to continue in the steps of the creator, shaping and reshaping reality as they wished. However, they were prone to making mistakes.
+The best known titan was the  Elder Titan. In honing his skills, he shattered a something that could never be repaired, and fell into his own broken world. He now spends eternity attempting to repair this mistake.

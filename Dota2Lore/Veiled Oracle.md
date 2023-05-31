@@ -1,0 +1,1 @@
+The Veiled Oracle is a revered figure among the Sisters of the Veil. He or she is responsible for naming those who would die at the hands of the Phantom Assassins. Little else is known about the Oracle.

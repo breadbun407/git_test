@@ -1,0 +1,1 @@
+The Bullsnake Flag was found at Roseleaf by Mireska following the battle between the Bronze Legion and the Red Mist. It is an emblem of the Bronze Legion. The Bullsnake design is also seen on shields.

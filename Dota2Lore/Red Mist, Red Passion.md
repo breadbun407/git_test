@@ -1,0 +1,1 @@
+Red Mist, Red Passion is an erotic thriller book written by the bard Goodkind about an unknown adventure in Axe's life. Not many people read it because of its erotic thriller tag. Despite this, the prodigal mage slayer Wei, a big fan of all of Goodkind's books, thinks that this novel is underrated.

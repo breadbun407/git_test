@@ -1,1 +1,0 @@
-The underground city of Aziyog lies deep in an endless cavern walled with obsidian, located beneath the magma fields and simmering roots of dormant volcanoes.

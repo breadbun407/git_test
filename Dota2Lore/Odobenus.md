@@ -1,0 +1,2 @@
+The Odobenus are a race of walrus-like beings, originally from the region near Azura.
+The Odobenus were masters of rock, root and iron. They formed armies comprised of of legions of soldiers. After their warriors die, their graves are guarded by constructs created from stone. One such construct, made of stone containing life force, came to life and now roams the world in search of lands to protect.

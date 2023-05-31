@@ -1,0 +1,1 @@
+The Spire Mage was a sorcerer. He forged a crown of from magic and gemstones for the king of The Barrens, likely Crixalis. He also used his viscous cauldron to craft a set of poisonous bracers for him.

@@ -1,1 +1,0 @@
-Hidden among the hills of the Hazhadal Barrens is a cantonment of the order of the Aeol Drias, where  Silencer was raised.

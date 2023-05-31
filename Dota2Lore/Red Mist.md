@@ -1,0 +1,5 @@
+The Red Mist is an Oglodi army, notable for invading the Thousand Tarns. Its grunts were taught to aim for the neck, and cowards were forced to cut their hair in shame. Among the Red Mist was a Reaper, a respected figure responsible for executing those who flee from battle. Aside from combat, the Red Mist were also able blacksmiths, with each grunt being responsible of forging his own sword and shield.
+Axe was part of the Red Mist, and climbed through the ranks by eliminating rivals until the only soldier left was himself. He then took this chance to declare himself the Red Mist General. After the Red Mist fell into disarray, it was replaced by the Bloodmist army.
+After Axe, the leadership of the Red Mist fell to Sorla Khan, a violent and unreasonable Oglodi. Her actions have disturbed the likes of Yurnero, who believes she must be dealt with.
+The Red Mist launched an offensive against Tresdin's Bronze Legion at Roseleaf, with unknown outcomes. Mireska implies that the Red Mist emerged victorious, although this is uncertain.
+Character References

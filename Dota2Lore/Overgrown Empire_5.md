@@ -1,1 +1,0 @@
-When activating the monsoon weather, equipped custom weather effects do not work at all, so that they cannot be stacked up with the monsoon weather.

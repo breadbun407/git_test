@@ -1,0 +1,3 @@
+Nishai is a location in the Dota 2 world. It is known for seasonal earthquakes, during which its mountainous peaks dislodge avalanches onto the land. Sealed caverns run below the land, where no light shines save the glow of bioluminescent creatures.
+Earthshaker hails from Nishai, where he lay dormant until one particular earthquake shook him awake. His magical totem is also of Nishian origin, although what special properties this confers is unclear. Gargoyles also inhabit Nishai, and are known to have befriended Earthshaker.
+A secret order of weaponsmiths live in Nishai. It is they who crafted the Eclipse Monolith for Earthshaker, a special totem that absorbs sun and moonlight.

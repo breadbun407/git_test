@@ -1,1 +1,0 @@
-Mireska Sunbreeze has spent time in the Desert of Misrule and has grown to like it there.

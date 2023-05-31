@@ -1,0 +1,1 @@
+The Ascendants are a group of mysterious beings, referred to only by Mercurial, who wishes to become one of them. The Ascendants speak a unique language. The Transcendencies may have something to do with the Ascendants, although the relationship is unclear.

@@ -1,0 +1,2 @@
+Halgalreh was a vast desert empire, known for its prismatic towers. It now lies in ruins, its towers shattered into fine glass dust, dangerous if inhaled. When it was inhabited, the people of Halgalreh wore rings, flowing scarves, veils, and purple clothing. At night, the moon over Halgalreh casts a strange light over the ruins, causing hallucinations that warp the mind. The cause for this phenomenon is unknown.
+Lanaya has explored Halgalreh, pursuing arcane leads in its ruins, and finding some fashionable clothing, which she has claimed as her own.

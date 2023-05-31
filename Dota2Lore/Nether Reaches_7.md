@@ -1,1 +1,0 @@
-Pugna claims that all magic has their source in the Nether Reaches.

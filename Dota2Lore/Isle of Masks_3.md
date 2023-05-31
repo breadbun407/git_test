@@ -1,1 +1,0 @@
-The Ivory Isles may have been located somewhere near or within this island.

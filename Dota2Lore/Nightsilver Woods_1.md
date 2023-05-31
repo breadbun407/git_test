@@ -1,1 +1,0 @@
-The Nightsilver Woods is the sacred forest of Selemene, the Moon Goddess. The Dark Moon Order resides in the woods, dedicating themselves to Selemene and doing her bidding. Trespassers are either turned away from the Dark Moon warriors, or struck by beams of lunar energy from Selemene herself.

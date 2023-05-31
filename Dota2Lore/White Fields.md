@@ -1,0 +1,1 @@
+The White Fields is a location in the north, likely near The Barrier. It was the site of a great brawl, during which  Tusk first performed his signature, the  Snowball. Given Tusk's nickname as the "Snowball from Cobalt", it's possible that Cobalt is nearby.

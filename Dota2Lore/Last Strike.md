@@ -1,0 +1,1 @@
+Last Strike is the martial tradition of paying combatants for each killing blow that they successfully land. Now common among every kingdom, this tradition's potential roots may stem from ancient Stonehall's Death Bounty document, first proclaimed by Lord Regent Urthic Laste in the Stonehall Cartularium.

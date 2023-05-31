@@ -1,0 +1,1 @@
+Etienne Swiftguard was Donte Panlin's mentor in the Nivan Gallants. He likely fought using a musket as his weapon of choice. During the Gallants' fight against King Sylak's pyromancers, Etienne was fatally wounded. Using the last of his strength, Etienne gave Donte his musket, and told him to "Fight fire with fire".

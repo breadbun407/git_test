@@ -1,0 +1,4 @@
+Fundamentals are powerful primordial entities, each representing the fundamental interactions that make up the universe.
+A Fundamental is defined by several things. First, they embody the fundamental laws of the universe who later gained sentience through unknown means. They exist across all of the universe's planes of existence at once and thus they are omnipresent forces. The Fundamentals can use this omnipresence to call upon versions of themselves from other planes, but each Fundamental has different ways and applications of this power.
+They exist beyond the limits of the physical plane, and possess abilities that defy the laws of nature.  Elder Titan created the Fundamentals long before the Schism, when he divided the forces of the universe. When a Fundamental dies, it returns to the Fundamental Plane.
+There are four Fundamentals, meaning that some mentions to Fundamentals must be overlapping references to the same entity.

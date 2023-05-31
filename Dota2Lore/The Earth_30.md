@@ -1,1 +1,0 @@
-As the goddess of the woods, Verodicia is the mother of everything that lives and grows on this massive fertile rock by feasting on the Sun's warm light.

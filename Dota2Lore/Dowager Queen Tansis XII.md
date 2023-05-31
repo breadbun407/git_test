@@ -1,0 +1,1 @@
+Dowager Queen Tansis XII is the wife of king Tansis XII, and mother of Tansis XIII. Her personal name is unknown. After her husband's death, she sought out Sir Davion, the  Dragon Knight to slay the dragon Uldorak, who was going to descend on the kingdom of Candoness during her son's coronation.

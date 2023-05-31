@@ -1,0 +1,1 @@
+Glow Conches are a species of mollusk with a distinct shell, characterized by many sharp points, and glowing blue spots. These shells are considered valuable on the black market. One glow conch was in the possession of Dark Reef's warden, but was stolen by Slark during his escape from the prison. Slark now uses it as a piece of shoulder armor.

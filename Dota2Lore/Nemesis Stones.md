@@ -1,0 +1,1 @@
+The Nemesis Stones refer to the  Radiant and  Dire factions, as well as Radiant Ore and Direstone. They were the product of cosmic forces, once imprisoned in the Mad Moon by Zet, now scattered across the Dota 2 world after the moon's destruction.

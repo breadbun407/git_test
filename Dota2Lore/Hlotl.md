@@ -1,0 +1,1 @@
+Hlotl or Hlotl-beasts are a species of animal living within the high peaks of Xhacatocatl. They are described as creatures that have feathers, fangs, and tusks, and stalk their prey. Hlotl are sometimes hunted by the natives, and Strygwyr has a set of armor fashioned from their remains.

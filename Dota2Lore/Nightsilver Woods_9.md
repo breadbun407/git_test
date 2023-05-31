@@ -1,1 +1,0 @@
-Sun Wukong sometimes spends summers in the Nightsilver Woods.

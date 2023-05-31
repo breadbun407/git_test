@@ -1,0 +1,1 @@
+Moonsilver is a rare type of ore, presumably imbued with lunar energy. Its origins are unclear, but could be from the Nightsilver Woods. Moonsilver is used to make armor and shields, granting its wearer greater agility.

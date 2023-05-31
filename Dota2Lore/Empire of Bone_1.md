@@ -1,1 +1,0 @@
-The Empire of Bone was Ostarion's domain. Its palace and towers were constructed of bone, as were the paving on its streets. Even the natural surroundings came to be replaced by bone, such as the Ivory Forest. It was ruled from the Throne of Bone.

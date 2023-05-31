@@ -1,1 +1,0 @@
-Before the fall of Ashkavor, its is rumored that Ashkavorian elders recorded the presence of The Lost Vigil, a group of missing Vigil Knights, see around the mountains that guard the entrance to Fellstrath.

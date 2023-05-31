@@ -1,1 +1,0 @@
-Reef's Edge is an underwater environment, likely situated at the edge of Dark Reef prison.

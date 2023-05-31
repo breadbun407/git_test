@@ -1,0 +1,1 @@
+Sheragndar is a mysterious character, possibly a leader of a faction.  Mars fought against Sheragndar in a final battle that lasted the full cycle of an Ultorian moon. Sheragndar may have been a member of The Continuum.

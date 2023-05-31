@@ -1,0 +1,8 @@
+The Cathedral of Rumusque is supposedly a place of worship. It is unknown if the name "Rumusque" refers to a deity/entity that the cathedral worships or serves, or if it is the name of the area the cathedral is built in.
+The religious group inhabiting the cathedral is often called The Rumusque Faithful.
+The Cathedral hosts its own clergymen, who appear to believe in fighting death, decay and corruption. Here, popes have worked to serve under an unknown deity or purpose, but it is evident that they spread a sort of holy scripture and promise salvation and spiritual rewards if one were to accept their teachings. The grand priestess Crella was one such cleric, and it was she who forged the Chains of Abscession to bind the servants of the Dead God.
+Lady Anshu is the High Priestess of the clergy.
+The teachings of Rumusque are otherwise obscure, and no canon or text is currently known.
+The clerics of Rumusque are opposed to the corruption of the Dead God. To combat his influence, they ventured out on a pilgrimage to the Fields of Endless Carnage, where countless corpses laid. They purged the land through unknown methods, although Donte Panlin describes their tactics as "dark times". Pudge left the fields before the cleric arrived, and was therefore not purged.
+The Cathedral was once stricken by a powerful plague, along with the rest of the nearby population, killing most of the priests and popes that worked there, save for a lucky few, one of which was Rotund'jere, who would then become the Necrophos after being thrown into a "plague ward", a room possibly contained inside the cathedral, said to be "ensorcelled with spells" that will inflict those who stay inside it a slow and lingering illness.
+

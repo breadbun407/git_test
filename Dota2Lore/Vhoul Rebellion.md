@@ -1,0 +1,1 @@
+The Vhoul Rebellion was launched by the rodent-like Vhoul. It was started by Rix when he was tasked to collect rations from the farmers of Roseleaf. When Tresdin instructed him to take the food by force, he instead led the farmers to resist against Stonehall's influence.

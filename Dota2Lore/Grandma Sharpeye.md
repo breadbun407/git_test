@@ -1,0 +1,2 @@
+Grandma Sharpeye, also known as Grandma Sharpie, was Brag Sharpeye's wife, and Kardel Sharpeye's grandmother. Her first name is unknown.
+While she never shot a firearm, she rolled fine cigars and packed reliable cartridges for the other Keen in of Knollen. Every fifth eve, she sat by the fire in her rocking chair, smoking cigars and packing ammunition cartridges for her family. After she died, her favorite smoking rug was passed to Kardel, the  Sniper, who uses it as a cape.

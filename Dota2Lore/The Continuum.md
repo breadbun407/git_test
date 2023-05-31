@@ -1,0 +1,1 @@
+The Continuum is a mysterious faction.  Mars fought campaigns against The Continuum that lasted centuries. Sheragndar may have been a member of The Continuum.  Dawnbreaker fought against The Continuum for an unknown period of time.

@@ -1,1 +1,0 @@
-Fellstrath is a jungle region, and home to a lost civilization. It is a tropical location, subject to frequent monsoons. The area is located beyond the mountains near Ashkavor, and is renown for its dangers. The fearsome Mo'rokai inhabit Fellstrath, laying dormant until disturbed.

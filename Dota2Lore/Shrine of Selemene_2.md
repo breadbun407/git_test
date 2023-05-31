@@ -1,1 +1,0 @@
-It is unknown if the Temple of Mene and the Shrine of Selemene refer to the different structures.

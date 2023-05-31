@@ -1,1 +1,0 @@
-Mars knows and understands the Nothl Realm. He likens it to a latrine, likely because of how (possibly unwanted) people are dumped into it as sacrifice.

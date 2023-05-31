@@ -1,1 +1,0 @@
-Floating mine on the outside

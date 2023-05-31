@@ -1,0 +1,1 @@
+Frost Owls are a species of owl, living in the northern lands of Icewrack and around the Blueheart Glacier. They are notoriously elusive, and have been known to guide lost travelers to safety. Rylai owns a staff fashioned in the form of a Frost Owl.

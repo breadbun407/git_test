@@ -1,1 +1,0 @@
-Appearing as a growth on Leshrac's body when he drank the tainted waters, there are branches or roots that can channel great but unknown power.

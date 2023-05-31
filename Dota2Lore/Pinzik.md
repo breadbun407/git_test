@@ -1,0 +1,1 @@
+Pinzik is a brilliant but eccentric engineer, known for creating strange devices. Rigwarl met Pinzik while traveling, and Pinzik agreed to make him strange new pieces of equipment, the Piston Impaler and the Blastforge Exhaler.

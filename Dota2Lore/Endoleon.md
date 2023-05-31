@@ -1,0 +1,9 @@
+Endoleon is a character in the lore of Dota 2.
+Endoleon must've created or been involved in the creation of the  E.M.P. spell, since Endoleon's possessive name is invoked when using it. Hence, Endoleon is a mage.
+But it wasn't just Endoleon who is credited with the E.M.P. spell. Shimare's possessive name is also invoked when using it. It's unknown if these two mages are related to each other.
+Regardless, since the young Invoker (a mage who existed during the ancient times when Magic was once at its most potent form because it was still primarily a mnemonic arts) learned the E.M.P. spell alongside his nine other invocations, wielding them all with the rare and ancient sorcery of invoking, Endoleon must have existed during this golden age of magic as well & hence this obscure magician must've been an ancient one too. Also, Endoleon must've been a quasi-immortal like these ancient mages are.
+In his youth, the  Invoker learned Endoleon's  E.M.P. alongside the nine other spells he currently wields, using three Wex orbs to invoke this spell for casting.
+Having existed during the old ages when magic was primarily mnemonic, Endoleon must've been quasi-immortal like the other ancient mages whom Invoker sourced his spells from.
+That is, assuming that Endoleon is still alive today...
+Much like the Invoker, Endoleon must have had his ability to  Invoke spells and the energy of  Wex to cast invocations. Otherwise, Endoleon would not be able to cause an  E.M.P. (which stands for Endoleon's Malevolent Perturbation or Extractive Mana Pulse, a.k.a. Shimare's Extractive Pulse or Wex magnelectros) which costs Wex Trionis to invoke.
+As the spell's names suggest, this magic builds up a charge of electromagnetic energy that, once detonated, siphons the mana of those caught in the pulse to the caster.

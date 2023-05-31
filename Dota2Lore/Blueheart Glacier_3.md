@@ -1,1 +1,0 @@
-According to Rylai, the glacier has a "heart", which is rare and hard to find.

@@ -1,1 +1,0 @@
-The violet shryll is a species of avian with a liminal existence between this world and the Nothl. Only its wingtips cross the boundary into the Nothl from this world, making the tips of its feathers dark while the rest of its white body remains in the Terrene Plane.

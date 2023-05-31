@@ -1,0 +1,3 @@
+The Fae or Faeries are a race of spiteful beings that live in the Fae Realm. They resemble insects, with wings and antennae. The Fae are known for being conniving and untrustworthy, and can disappear into the shadows, rendering themselves unseen.
+Some Fae live in Revtel, a nation of devious intrigue and unscrupulous dealings, where they are ruled by merchant kings like Mireska's Father. Fae culture is backstabbing and manipulative, with complex rituals and etiquette that one must navigate to remain in decent society. Despite these rules, some Fae believe that it is unseemly to die in a decorous manner.
+The Fae are aware of stuntwood, a parasitic vine that kills trees by sapping nutrients. They consider it a pest and will eliminate any vines and sproutlings on sight.

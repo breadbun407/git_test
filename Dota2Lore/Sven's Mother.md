@@ -1,0 +1,1 @@
+Sven's Mother was an unnamed meranth who bore a child with Sven's Father, a member of the Vigil Knights. She was described as a "Pallid Meranth", although what distinctions this entails is uncertain. Sven's Mother died a "lingering death", during which she was cared for by her son.

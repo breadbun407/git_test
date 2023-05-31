@@ -1,0 +1,1 @@
+The Frosted Winds Tribe is faction known by its contact with Kardel Sharpeye, the  Sniper. They may be Keen. They craft armor out of bone, and paint them with ceremonial markings. The tribe hunts the Triple-Tailed Howling Wolf, making capes from their pelts.

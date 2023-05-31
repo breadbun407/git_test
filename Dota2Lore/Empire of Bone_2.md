@@ -1,1 +1,0 @@
-Following the events of Wraith-Night, where Ostarion was born anew as the  Wraith King, the Wraith Essence that he had collected also transformed his empire. Now, the bones are covered with a green Wraith Flesh.

@@ -1,1 +1,0 @@
-This temple bridges the Kalabor Desert and the verdant lands to the west. Because of this, it is often used as a shortcut by those who are brave enough to pass through the booby-trapped temple and its guardians to access the Grimwal Gate which bars the way to both lands.

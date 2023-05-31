@@ -1,1 +1,0 @@
-The Isle of Songs is a location in the Dota 2 world. Its position in the world is not known, but due to its association with  Kunkka, it could be near the islands of Cladd. Long ago, a princess from the Isle of Songs gifted Kunkka with a sash of spider silk, which he still owns.

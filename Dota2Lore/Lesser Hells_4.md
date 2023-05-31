@@ -1,1 +1,0 @@
-The Speed Demon, an imp courier with a brown hide, will suffer eternal damnation in the sixty-four planes of the Lesser Hells if he fails to deliver his masters' loot on time.

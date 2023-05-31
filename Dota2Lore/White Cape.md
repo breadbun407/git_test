@@ -1,0 +1,1 @@
+White Cape is a legendary thief. He resided among the rebel camps at Highseat. White Cape's fate is the stuff of one rumor, that he was captured by Gondar, and delivered to face judgment for his crimes.

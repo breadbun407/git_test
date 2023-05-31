@@ -1,1 +1,0 @@
-In the temple, the ashes of Xin rests in a topaz cauldron. Inspired by Xin's legacy, the Burning Celestial reignited the ashes with his body, and this fusion gave birth to the being known today as  Ember Spirit.

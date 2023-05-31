@@ -1,1 +1,0 @@
-Ashkavorians before their transformation

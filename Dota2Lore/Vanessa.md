@@ -1,0 +1,3 @@
+Vanessa is a powerful occultist and a prominent character in Artifact Foundry. She provides commentary on a number of issues and characters, including magical law enforcement, Chronomancy , Aghanim and  Rubick, and 'The Oath'.
+Vanessa is the master of the exiled Demon Prince, Knogh, having tricked him into servitude by unknown means. Vanessa met Akasha, the  Queen of Pain, in Weeping Rose and was present while Knogh transferred his powers to Akasha as the Eminence of Ristul, although its not clear why she allowed this.
+Vanessa is sometimes referred to as the foil to the Sapphire Archon Pierpont. While acknowledging his expertise in certain magical matters, she describes him as a 'sanctimonious bastard'.

@@ -1,0 +1,3 @@
+Radiant Ore is a type of mineral known for its unpredictable structure. It is a bluish, glowing substance found in  Radiant lands, and blessed with benevolent magic. A purple variant of the ore can be found in dry, desert lands. The  Dire equivalent is Direstone. Together, the two are known as the Nemesis Stones.
+Blades made from the ore are extremely sharp, but break quickly. It is also used to make alchemical flasks.
+Radiant Ore was used by Abzidian to create  Demon Edge's blade. It is also embedded into the buildings of Radiant ancients, as well as the equipment of Radiant creeps. Meepo has been known to dig up Radiant Ore.

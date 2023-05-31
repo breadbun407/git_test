@@ -1,1 +1,0 @@
-After escaping from Dark Reef, Slark now lives as a furtive inhabitant of southern Shadeshore, possibly known as Tidemarsh.

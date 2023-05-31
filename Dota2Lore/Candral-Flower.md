@@ -1,0 +1,2 @@
+A Candral-Flower is a kind of flower in the lore of Dota 2. It's a big flower with indigo petals, a long green stem and a glowing center that brims with luminous particles. It is found in the heart of the Endless Copse.
+Plucked from the heart of the Endless Copse,  Nature's Prophet wields a wooden staff that is twined with a Candral-Flower. This staff compliments his attire when he attends peaceful festivities or when he just wants to relax.

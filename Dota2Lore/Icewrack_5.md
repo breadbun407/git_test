@@ -1,1 +1,0 @@
-A particular species of wolf, the Icewrack wolf, can be found in Icewrack. Tusk-foxes also live in the region.

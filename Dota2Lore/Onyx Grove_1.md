@@ -1,1 +1,0 @@
-The Onyx Grove is a dark, secretive location in the north, discovered by Sylla while exploring the pine forests. Strange and fierce beasts gather at the grove to quarrel and fight. To participate, Sylla adopted a new form to match the surroundings.

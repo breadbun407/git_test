@@ -1,1 +1,0 @@
-Underlord lives in the obsidian city of Aziyog, located far beneath the magma fields and the roots of dormant volcanoes.

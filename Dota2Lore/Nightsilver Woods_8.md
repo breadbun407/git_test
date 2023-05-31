@@ -1,1 +1,0 @@
-The forest is likely also home to the sacred Lunar Moth, as well as its offspring, the felmoth.

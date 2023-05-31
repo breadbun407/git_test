@@ -1,0 +1,1 @@
+The Lord of Misrule is the regent of the Desert of Misrule. Believing that Lina would make a suitable wife for his son, he had a royal dress made for her, so that she would be more presentable to the court. The fireproof fabric used was exceedingly expensive, and as with other suitors, Lina likely turned down his son.

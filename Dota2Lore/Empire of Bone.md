@@ -1,0 +1,2 @@
+The Empire of Bone was Ostarion's domain. Its palace and towers were constructed of bone, as were the paving on its streets. Even the natural surroundings came to be replaced by bone, such as the Ivory Forest. It was ruled from the Throne of Bone.
+Following the events of Wraith-Night, where Ostarion was born anew as the  Wraith King, the Wraith Essence that he had collected also transformed his empire. Now, the bones are covered with a green Wraith Flesh.

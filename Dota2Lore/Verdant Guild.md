@@ -1,0 +1,4 @@
+The Verdant Guild is a faction of forest druids in the lore of Dota 2.
+These arboreal druids dwell in the forests surrounding White Spire and protect their wild home.
+Only one member of the Verdant Guild is known by name: Springfoot, the High Druid of this druidic guild. In light of the planned expansion of White Spire, the Verdant Guild (repped by Springfoot) rallied lovers of nature and speakers for the trees to stop the forest from being destroyed.
+Druids have come to punish Hobgen because he burned down large portions of the forest. It was not specified that they were from the Verdant Guild, but seeing how Hobgen had plans to expand White Spire by burning down the forest, plus the druids of the Verdant Guild opposed the city expansion project, it can be assumed that the druids that attacked him were actually from the Verdant Guild. Not to mention that this is the only druidic guild mentioned in Underlords, so one cannot assume otherwise.

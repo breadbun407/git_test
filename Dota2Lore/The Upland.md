@@ -1,0 +1,1 @@
+The Upland is a region of highlands in the Dota 2 world. The miners of the Upland intentionally avoid the veins of sacred jade runs throughout its crags and valleys.  Earth Spirit was carved long ago  from this sacred jade. The Upland could possibly refer to Druud.

@@ -1,1 +1,0 @@
-Akin to the natural world's elements, the Impurities are the elements that form the heart of all creation. As impure elements, the whole that they compose mirrors their properties, thus it's a plane of blight and torment. There are 4 Impurities corresponding with the elements or states of matter: sinister energy, tainted water, evil wind, and brittle earth.

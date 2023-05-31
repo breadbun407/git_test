@@ -1,0 +1,1 @@
+The Teardrop Gems are a set of twelve gems, each glowing with the chill of glacial ice. Eight of these gems were shattered, creating a vast tundra where once stood a burning waste. The remaining four gems were used to create an armor and weapon set for Azwraith.

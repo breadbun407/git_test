@@ -1,1 +1,0 @@
-The desert was once ruled by nobles, who adorned themselves with precious rubies. They wore golden jewelry, and robes with pointed tails. Today, the Lord of Misrule reigns over the desert.

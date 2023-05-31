@@ -1,0 +1,2 @@
+The Order of Cyprin is an ancient faction formed from Slithereen and other undersea dwellers. Some are drawn from the Slithereen Guard. Only those distinguished in battle are allowed into the order, and its membership is considered one of the highest honors. The Conclave of the Brine is likely related to the order's activities.
+The order fought at the Battle of Stonefish Gate, where Slithice was present, and later admitted into its ranks for her outstanding valor.

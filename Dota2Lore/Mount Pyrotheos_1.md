@@ -1,1 +1,0 @@
-Mount Pyrotheos is a dead volcano. Below its smoldering caldera is a complex system of dark lava tube, where Black Arachnia lives with her many spiderlings.

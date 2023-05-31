@@ -1,1 +1,0 @@
-The Temple of Ermacor is an ancient temple dedicated to Ermacor the Pathfinder.

@@ -1,1 +1,0 @@
-Ash the Defiler lives in the Weald of Torment, accessible in the Continuum Vault. His place's name implies that it's in the heart of nature. It's unknown if he coexists with Leshrac.

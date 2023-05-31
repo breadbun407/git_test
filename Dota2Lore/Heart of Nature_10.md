@@ -1,1 +1,0 @@
-Speaking of creation from chaos, this is similar to creation from nothingness. This may bridge the gap between this realm and everything related to it with nothingness since a state of chaos is closer to annihilation or nothingness than a state of order, as the Chaos Knight himself can attest.

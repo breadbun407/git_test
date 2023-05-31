@@ -1,1 +1,0 @@
-Warlock's Golem is a demon spirit from the Outer Hells. Demnok summoned it into his Dreadwood staff, capturing it and binding it to his service.

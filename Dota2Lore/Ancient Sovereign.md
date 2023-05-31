@@ -1,0 +1,1 @@
+The Ancient Sovereign was a monarch of El'Harath, an ancient city near the Scintillant Waste. His name is unknown. Like  Sand King, he was scorpion-like in appearance, and possessed functional wings. It is said that death by the Ancient Sovereign's claws was something greatly desired.

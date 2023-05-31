@@ -1,1 +1,0 @@
-Druud is a land in the Dota 2 world. It is characterized as a highland or plateau, and is home to the centaur clans. The arena of Omexe is located in Druud.

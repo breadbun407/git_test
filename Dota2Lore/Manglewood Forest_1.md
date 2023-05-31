@@ -1,1 +1,0 @@
-The Manglewood Forest is a location in the world of Dota 2.

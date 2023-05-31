@@ -1,1 +1,0 @@
-The Isle of Masks is a location in the world of Dota 2.

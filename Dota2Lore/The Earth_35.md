@@ -1,1 +1,0 @@
-The comet of the  Morphling orbited this planet's sun due to the star's gravitational pull, until at last it fell to earth melted. Now, this alien is at one with this planet's oceans.

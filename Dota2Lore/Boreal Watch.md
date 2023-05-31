@@ -1,0 +1,1 @@
+The Boreal Watch, also known as the Tundra Walkers is a faction located in the extreme north. They wear cowls and armor forged by the Northern Drow, and arm themselves with arrows fletched from the feathers of the arctic arcoch.  Drow Ranger is a member of the Boreal Watch.

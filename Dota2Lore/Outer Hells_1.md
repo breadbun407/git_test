@@ -1,1 +1,0 @@
-The Outer Hells are one of the known layers of Hell in the world of Dota 2.

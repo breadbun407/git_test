@@ -1,0 +1,2 @@
+The House of Tahlin was a great dynasty of rulers who governed an unnamed kingdom. They are guarded by the Tahlin Watch. The house sigil is adorned with ancestral daggers. Highborn members of the house distinguish themselves with svelte and sturdy horns, as well as soft and luxuriant tails.
+The dynasty was later violently overthrown, and  Riki is the last surviving son of the line. Before the fall, servants of the house smuggled out several valuable daggers. Riki also has the queen's damaged crown in his possession.

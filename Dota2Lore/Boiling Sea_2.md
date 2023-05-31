@@ -1,1 +1,0 @@
-Rylai was once sent to the Boiling Sea by her master, the Ice Wizard. She spent many months in meditation, before waking one day to suddenly speak the word "Snowdrop!". Upon uttering the word, the steam of the land turned to falling snow, and she returned to her master, who was satisfied with her accomplishment.

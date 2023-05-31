@@ -1,0 +1,3 @@
+Bogdugg is the ogre lord of the Bonemeal Ogres. He rose to power in Bonemeal Ridge simply because he wielded the largest club among the ogres living there. Like all other ogres, he is blessed by the Goddess of Luck with a divine quality called Dumb Luck. Because of this innate blessing, his femur can be used as a lucky charm.
+The Bonemeal Ogres seek to drive away the Longclaw clan from the Howling Weald, but their leader Bogdugg is not quite fond of battle planning. Thus they have hardly made any progress over the course of a generation.
+He might have an animosity towards the Ankaboot and the spiders of Silkmire Pass.

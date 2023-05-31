@@ -1,0 +1,1 @@
+The Icewrack Wolf is a species of northern wolf, inhabiting the lands of Icewrack to The Barrier. They are nocturnal, as their long howls can be heard at night. Wolf pelts are sometimes made into clothing. A small Icewrack wolf pup follows Rylai around, attracted to her magical cloak.

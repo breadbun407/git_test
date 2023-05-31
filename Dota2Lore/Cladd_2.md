@@ -1,1 +1,0 @@
-Claddish steel is also renown for its strength.

@@ -1,0 +1,10 @@
+Faerie Dragons are a race that originate from a different dimension. They are neotenous, and extremely long-lived.  Its best known member is the mischievous  Puck.
+Faerie Dragons are small, flying creatures with six prehensile limbs, and a tail that bifurcates into two curled tips. Some individuals are known to possess glowing tails, creating a spectacle of light in flight that is seldom witnessed. They have two large eyes, and several antennae on their heads. The wings are insect-like, and exist in a realm slightly out of sync with the rest of their body, allowing them to molt and change forms independently of their bodies. They also and contains magical dust that can be released at will.
+Faerie Dragons larvae reach adulthood in a chrysalis, before being hatched on fronds of the Undertree. This incubation can last for a million years, and a single Faerie Dragon may undergo several metamorphoses. Upon emerging from their pupae, the larvae are transformed into nymphs, which retain juvenile features. Faerie Dragons rejuvenate themselves by molting, which can change their appearance.
+Faerie dragon blood is apparently rare, and used in alchemy.
+Playful and mischievous by nature, Faerie Dragons are known to play tricks and tell jokes. Some are able to traverse to different realms and dimensions, such as Claszureme.
+Young Faerie Dragons eat the leaves, roots, and stalks of the Undertree. Aside from plant matter, Faerie Dragons can also be cannibalistic, consuming their own siblings for sustenance.
+The Scrolls of Haize quoted by Puck may be of cultural importance to the Faerie Dragons, and states that youth comes with responsibilities.
+Faerie Dragons can be hostile to outsiders. Those who try to observe their glowing flight on moonless nights often lose their lives in the process.
+The Fearie Dragons may be related to the Fae and the Fae Realm, and subsequently share similar powers. The Fae Mireska complains that Puck regularly interferes in her business, and she and Puck are both able to understand Mercurial's speech.
+Faerie Dragons have been known to visit the Hidden Temple.

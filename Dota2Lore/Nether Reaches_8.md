@@ -1,1 +1,0 @@
-Viper is but one of the many netherdrakes that hails from the Nether Reaches' luminous caverns. He was released from that place by a certain wizard who had hoped to capture and tame him, but managed to break free into the surface world.

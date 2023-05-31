@@ -1,0 +1,1 @@
+Brandalon was the king of an unknown realm, infamous for the bloodshed and carnage that occurred under him. A young  Pudge once served him as the royal butcher, and is one of few to remember his bloody reign, which may have involved Pudge's butchery skills.

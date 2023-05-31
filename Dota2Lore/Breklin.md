@@ -1,0 +1,2 @@
+Breklin, the Living Anathema is a character in the lore of Dota 2, where he first debuted in the official comic A New Journey. He is friends with Sun Wukong and works with him as a rival cage fighter in Grek's ring located in White Spire. He admires Jah'rakal's work.
+Breklin's physical features share some similarties to the Night Stalker, including the blue skin, green eyes, and red strips of skin. This may hint that Breklin has some connection to the primordial night creatures that Balanar belongs to.

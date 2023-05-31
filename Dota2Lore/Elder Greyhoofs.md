@@ -1,0 +1,1 @@
+The Elder Greyhoofs were a group of centaurs who oversaw the Clanfounding, a ceremony during which the centaur clans were formed. They possessed some degree of magic, enchanting the Gloried Horn of Druud so that a single sound would call all the centaurs of Druud to battle.

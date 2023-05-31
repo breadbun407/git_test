@@ -1,1 +1,0 @@
-A one winged draconic creature was captured by Huskar, who has used it for his own ends. It's possible that this creature came from this realm or has some form of connection to it.

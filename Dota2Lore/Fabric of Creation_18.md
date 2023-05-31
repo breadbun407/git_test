@@ -1,1 +1,0 @@
-Last but not least,  Weaver has many powers over the fabric of nature as both its keeper and its future destroyer to make room for his new fabric.

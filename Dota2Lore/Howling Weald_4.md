@@ -1,1 +1,0 @@
-Bonemeal Ridge is located to the north of the forest. It is inhabited by ogres who are hostile towards the Weald's current inhabitants.

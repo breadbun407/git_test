@@ -1,1 +1,0 @@
-Hellwether rams are found in the Bleeding Hills.

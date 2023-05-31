@@ -1,0 +1,8 @@
+Myrault is a character in the lore of Dota 2.
+Myrault must've made the  Ghost Walk spell or was involved in its creation since their possessive name is invoked when others cast this spell. Thus Myrault might be a mage.
+Seeing how this young Invoker (who existed during the oldest ages when spell casting was once at its most potent form because it was still primarily a mnemonic art) learned his Ghost Walk spell alongside his nine other invocations, Myrault must have existed during this golden age of magic as well and thus this obscure mage must've been an ancient one too.
+In his youth, the  Invoker learned Myrault's  Ghost Walk alongside the nine other spells he currently wields, using two Quas orbs and one Wex orb to invoke this spell for casting.
+Having existed during the old ages when magic was primarily mnemonic, Myrault must've been quasi-immortal like the other mages whom Invoker sourced all of his spells from.
+But this is just assuming that Myrault is still alive today, that is...
+Like Invoker, Myrault must have had the ability to  Invoke spells with the energies of  Quas and  Wex. Otherwise, Myrault wouldn't be able to cast  Ghost Walk (also known as the name Myrault's Hinder-Gast or Geist of Lethargy), a spell invoked via two Quas orbs and one Wex orb.
+Casting the spell renders the invoker invisible via manipulating Quas and Wex. The elemental imbalance caused by mixing the conflicting properties of Quas and Wex in one spell and the latter's deficit in the spell's formula compared to Quas slows anyone near the concealed caster, but the greater amount of Quas slows the caster as well.

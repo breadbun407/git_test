@@ -1,0 +1,1 @@
+Iczoxtotec, also known as the Herald of Blood, is an enormous bird of prey in service of the Flayed Twins. Drawn to war, it soars above the skies of Xhacatocatl, searching for sacrificial victims for its gods. Strygwyr owns a headdress adorned with the feathers of Iczoxtotec.

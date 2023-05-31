@@ -1,1 +1,0 @@
-The Nothl Realm is an afterlife for those who are deeply connected to it or sacrificed to it and a place of rebirth (for those who are deeply connected to it) into the lands of the living.

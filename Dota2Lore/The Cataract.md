@@ -1,0 +1,1 @@
+The Cataract is either a place near the islands of Cladd, or a vessel that carried the Demons of the Cataract. It was not destroyed during the battle at the Trembling Isle, but "roared off into the void" afterwards.

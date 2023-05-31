@@ -1,1 +1,0 @@
-Light's Keep is a mysterious location in the lore of Dota 2.

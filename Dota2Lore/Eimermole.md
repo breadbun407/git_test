@@ -1,0 +1,3 @@
+Eimermoles are a race of mole-like beings living in underground environments. They are bluish-purple with a streak of white fur down their middle, and possess a star-shaped nosed with many fleshy tendrils.
+They are a technologically advanced race, employing mechanical drills and machinery to dig below the earth. Teams of Eimermoles can be found in the tunnels of The Underhollow, where they work with lights and pickaxes, possibly on a quest to find the rare Roshefort cheese. Some Eimermoles make a living delivering items underground.
+In The Emerald Abyss, Eimermoles may be responsible for the giant drills poking out from the ground, which are worshiped by the local Mushlings.

@@ -1,1 +1,0 @@
-The Narrow Channel is a body of water. An unnamed prince's treasure ship once sailed through it, carrying a valuable Ceremonial Rapier. By some unknown way,  Kunkka managed to loot the rapier from the ship, perhaps after it had capsized.

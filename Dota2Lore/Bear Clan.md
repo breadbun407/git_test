@@ -1,0 +1,5 @@
+The Bear Clan was an organization of druids and warriors, ruled by high lords. It was one of several ancestral clans, and had contact with the Serpent Clan and the Dragon Clan. Over several millennia, the Bear Clan eventually went extinct. The only surviving member is Sylla, who received a Seed from the spirits of nature that rejuvenates him periodically.
+Members of the Bear Clan were known for their wisdom and sense of justice, as well as the attunement to nature. They sought to "restore the world" through unspecified means.
+Its members were taught that every rising sun was a gift, and appointed one druid to greet the dawn each day.
+The druids of the Bear Clan lived in the forests, separate from society. Because of this, they had no use for money. They carried sickles, a symbol and ritual tool of their clan.
+To prove their strength, each warrior had to carry their newborn in a satchel on their shoulder for eleven days. On the twelfth day, a piece of shoulder armor is given to the warrior as evidence of their strength.

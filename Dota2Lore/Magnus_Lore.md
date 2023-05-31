@@ -1,0 +1,27 @@
+
+
+
+
+Among the magnoceroi of Mount Joerlak, there are none so fierce and staunch as Magnus. He alone holds the greatest horn among them all and puts it to great use by goring anyone who dares to hunt down his kin for their precious horns, maintaining his noble vigil for half of a generation. A great calamity brought his brethren to the state of being endangered, leaving him even more determined to preserve them.
+Having cast himself away from his own kin to avenge the fallen, he has vowed to hunt down those who were complicit in endangering his brethren. He wields the powers of his people in the form of his pike, horn, hooves, and their magics, as well as the power of the very mountain that destroyed them to reciprocate justice and righteous retribution.
+Just like the horns of their race, the master-smiths of Mt. Joerlak agree on only a single point: that the horn of a magnoceros is more precious than any alloy. If the horn of a typical magnoceros is silver, then the horn of the one they call Magnus is gold. For half a generation, this fine warrior fiercely protected his kin from the hunters and poachers who coveted the horns of his kin, until his Matriarch urged him and his entire brethren to seek refuge to the north beyond the reach of the mountain's shadow. But Magnus dismissed her advice, having never failed to defend his people. The magnoceroi would stay, he decided, for a magnoceros does not believe in chance…nor does it ever change its mind.
+Magnus would soon find his beliefs challenged when Mt. Joerlak erupted without warning. Half of his kin perished in the fire and ash, prompting him and the other survivors to head north as their Matriarch once decided. They reached a blockade watched by a hundred hunters armed with bows and steel, much to his expectations. It was Magnus who was at the vanguard of the charge, leading his fiercest brothers and sisters against their enemies, while he fought with a ferocity that could only be matched by the erupting volcano behind him. Meanwhile the magnoceroi elders, mothers, and calves vanished into the drifts. The master-smiths were divided about what happened next.
+Some may speculate that Magnus did rejoin his kin, while others claim that he succumbed to his injuries and died beside the body of his Matriarch. Nay, neither of these theories are correct. Magnus vowed to rejoin his kin, but only after he finds those who were complicit in the eruption of Mt. Joerlak and skewers them on his horn. After all, a magnoceros does not believe in chance, even against a so-called natural calamity.
+Much time has passed since the calamity that befell his people. Although Magnus was single-minded towards those who hunted his kin, he has found a new cause in the strife within Roseleaf Forest. Magnus has sympathized and sided with the Vhoul, whom he believes are being objectified as a commodity by their colonizers, the nation of Stonehall. He also took a young Ilexa under his protection, for he believed that she is destined for something great, and he must see to it that it is realized.
+In the three-way war that stirs within Roseleaf, Magnus has chosen the side of the Vhoul and its protectors, such as the  Treant Protector.
+He has also become Ilexa's protector and has brought her to the Prowlers for protection.
+He likes working with  Sven, likely because of the synergy between their anti-army abilities. Sven shares the same sentiments as well.
+Magnus is respected by the  Centaur Warrunner for his strength. This seems a bit contradictory though, because Bradwarden is a poacher, a kind of person that Magnus detests.
+Magnus hates poachers and other people similar to them.
+Because of his alliance with the Vhoul and their protectors, he is hostile towards the Bronze Legion of Stonehall and the Red Mist Horde.
+The horn of Magnus is a recipient of an ancient crystal enchantment that dates way back to the cold, dark heart of the last ice age. This enchantment is a mark of distinction that is only given to the greatest warriors of the magnoceroi.
+The spirit of his magnoceroi people dwells within Magnus, and with them is their vast strength. He can tap into their power to work his magic. His connection to his late brethren goes deep enough to reach the immortal spirit of Ardenok to summon him and lend his strength from beyond the grave for an unknown but terrible price. Because of his spiritual power, he is considered a shaman.
+Magnus' powers are a combination of his natural talents, the manipulation of Mount Joerlak's forces, and spiritual magic.
+The  Shockwave that Magnus has is but a shadow of the violent vibrations emitted by the unstable Mt. Joerlak. He is accustomed to being in the presence of this volcano, so he took the opportunity to use it as a source of power, learning how to channel its reverberations.
+Tapping into the strength of his lineage, Magnus lets out a deep bellow to  Empower anyone fortunate enough to call him an ally.
+Thanks to its size, Magnus' horn can  Skewer multiple opponents through it.
+Horn Toss has no lore to it.
+Reverse Polarity is Magnus' most mysterious ability with its lack of explicit lore. Its description states that it changes properties of matter to suck in nearby opponents towards him but the exact properties of matter being manipulated are unknown. Its lore merely compares Magnus' fighting spirit to an erupting volcano.
+Allies meeting Magnus
+Enemies killing Magnus
+Others

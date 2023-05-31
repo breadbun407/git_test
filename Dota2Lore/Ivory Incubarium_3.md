@@ -1,1 +1,0 @@
-While the claim surrounding its origin is dubious, the  Aeon Disk is said to have been smuggled out of the Ivory Incubarium.

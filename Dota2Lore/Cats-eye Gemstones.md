@@ -1,0 +1,1 @@
+Cats-eye Gemstones are gems that can be used for scrying. Like their name suggests, these stones are round, and resemble a feline eye. The Mono Militis sect uses helmets mounted with cats-eye gems to enhance the wearer's vision. Gems are also inserted into sword hilts, although what purpose this serves is unknown.

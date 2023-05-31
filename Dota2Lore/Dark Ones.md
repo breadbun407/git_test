@@ -1,0 +1,1 @@
+The Dark Ones are a group of unnamed beings. They are only referred to by Slark, who forged a Dark Pact with them. When Slark claims victory on a battlefield, he expects the Dark Ones to honor their deal. What exactly this deal is, is unknown.

@@ -1,0 +1,1 @@
+Gliss was a high serpent priest who lived below the earth. Rhasta encountered Gliss when he sought refuge underground, away from his pursuing enemies. Covetous of the Shadow Shaman's magical gifts, Gliss attempted to strike down Rhasta with a cursed decanter, but was killed by Rhasta in defense. Afterwards, Rhasta took Gliss' censer, and now wields it as a wand.

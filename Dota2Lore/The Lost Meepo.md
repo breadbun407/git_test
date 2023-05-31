@@ -1,0 +1,1 @@
+The Lost Meepo is a clone of  Meepo, living below ground in The Underhollow. It is unknown how he was separated from the other Meepo clones, although he may have been searching a rare wheel of Roshefort cheese. He is equipped with mining tools, and currently makes a living as a shopkeeper in the cavern.

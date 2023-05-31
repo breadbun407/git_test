@@ -1,1 +1,0 @@
-Dragon spirits exist in this island. The most notable dragon spirit is the one that accompanies Yurnero, who also happens to be one of his many ancestors.

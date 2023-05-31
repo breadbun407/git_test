@@ -1,0 +1,1 @@
+The Dhreg Cult is a faction that practices a mysterious and almost incomprehensible dogma, possibly from the many chapels of Claszureme. It seems to be represented by the color green. Darkterror is one who has mastered its teachings, by tearing through its tracts with claws. After understanding the dogma, Darkterror grew green spines along his back.

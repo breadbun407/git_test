@@ -1,1 +1,0 @@
-The goddess Skadi may have something to do with Dark Reef prison. A Skadi Blade was found in buried on the prison grounds. Another Skadi weapon was crafted by a blacksmith and a wizard, from materials found in Dark Reef.

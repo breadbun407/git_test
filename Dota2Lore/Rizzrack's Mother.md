@@ -1,0 +1,1 @@
+Rizzrack's Mother was a keen, and one of the elder sisters of Beatrix Snapfire. Taking her son, she settled in the Vale of Augury, but died before Beatrix returned from her journey. It is possible that she died during the Treant Protectors attack on Augury Bay, which led to her son's mental trauma.

@@ -1,1 +1,0 @@
-When the planet was still being formed, it used to be a hot blob of matter before it cooled into what it is now. It was during this time its gravity tethered the Mad Moon to it.

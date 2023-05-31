@@ -1,1 +1,0 @@
-The Outworld is a mysterious place located somewhere in the edge of the Void, which is also described as "The World on the Rim of the Abyss". This is the homeworld of the race that Harbinger belongs to and where he keeps his vigil, anticipating the arrival of the evil forces that was foretold in the dark prophetic music of his mind.

@@ -1,0 +1,3 @@
+Netherdrakes are a species of flying draconic creatures who are best known by their inborn poisons and acids. The best known Netherdrake is  Viper, who was taken captive by the elderly  Pugna in hopes of keeping him as a pet. Viper eventually escaped, and killed Pugna with his poison.
+The Netherdrake species can only be found underground in the luminous caverns of the Nether Reaches, which has been sealed off from the surface world due to the shifting of tectonic plates.
+With its only known member as a reference, the skin of a Netherdrake has a leathery texture. They can excrete hemotoxic poisons as well as corrosive acids from their body that can melt through metal.

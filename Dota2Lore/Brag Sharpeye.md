@@ -1,0 +1,1 @@
+Brag Sharpeye, also known as Grandpa Sharpie or "Whistlecheeks", was one of the finest rifle marksman in Knollen, known to shoot the toes off a troll at one thousand feet. He is married to Grandma Sharpeye, and his grandson is Kardel Sharpeye, whom he left his favorite gun to.

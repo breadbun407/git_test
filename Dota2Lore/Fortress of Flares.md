@@ -1,0 +1,3 @@
+The Fortress of Flares is a structure located within the Wailing Mountains, likely near the Ruined City. It was once a training ground for new warriors, headed by the renowned Xin, who taught his pupils the Bonds of the Guardian Flame. A sealed temple can be found inside the fortress grounds. The fortress is now abandoned, and its buildings overgrown.
+A pair of relic rapiers were kept in the fortress, which came alive with fire when picked up by the reincarnated Xin.
+In the temple, the ashes of Xin rests in a topaz cauldron. Inspired by Xin's legacy, the Burning Celestial reignited the ashes with his body, and this fusion gave birth to the being known today as  Ember Spirit.

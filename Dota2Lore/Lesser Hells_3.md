@@ -1,1 +1,0 @@
-As a place of the gnashing of teeth, one can hear a great wail of suffering and anger when accessing Hell, a horrible sound perhaps produced by the damned.

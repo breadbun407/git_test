@@ -1,1 +1,0 @@
-Revtel is a nation, likely a city-state, populated by Fae. It is located near Stonehall and White Spire.

@@ -1,1 +1,0 @@
-The Hidden Temple is a secret site discovered by Lanaya, in her endless quest for knowledge. The Hidden Ones, including Inai, live within the temple, which also stores a number of encrypted codices.

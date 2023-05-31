@@ -1,0 +1,1 @@
+Stone Giants are a race of giants. In ancient times, their civilization built great cities of stone. Their cities have since disintegrated, destroyed by a great earthquake. Only a single pillar remains, now being used as a weapon by  Earthshaker.

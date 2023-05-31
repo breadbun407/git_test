@@ -1,1 +1,0 @@
-Everything in the isle was drowned beneath the waves, including the Visage of Vengeance.

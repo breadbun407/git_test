@@ -1,0 +1,1 @@
+The Massacre of the Apostates took place when six thousand soldiers from the House of Ambry attempted to take the capital of Slom from its Last King. This uprising  failed, and the rebels were slaughtered. Lord Ambry was executed for this attempt, and his son Banehallow cursed by the King's magicians with eternal lycanthropy.

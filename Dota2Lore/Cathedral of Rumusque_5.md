@@ -1,1 +1,0 @@
-The teachings of Rumusque are otherwise obscure, and no canon or text is currently known.

@@ -1,0 +1,7 @@
+The arts of the Dark Rift is a brand of dark sorcery in the lore of Dota 2.
+Seemingly exclusive to the monstrous inhabitants of Aziyog, users of this art can tap into the seams of reality and the twist between worlds to work their terrible power. In essence, this art allows the user to warp reality itself to great effect.
+Pugna claims that all sorceries have their source in the Nether Reaches. Aether (also known as void or nothingness) is an essential ingredient in the arts of the arcane, including the arts of the Dark Rift.
+Firestorm draws its power from the twist between worlds. With it, the user can conjure green, corrupted fires from the darkest depths of the abyss, ignoring the delays of space and distance between the abyss and the surface world.
+Pit of Malice is conjured by the user's manifest hatred and malice, which must be so powerful that it can twist into the seams of reality itself. The result is a paralyzing pit that seems to lead to the bottomless abyss itself.
+The titular spell of  Dark Rift allows the user to conjure a massive portal at the target location, allowing them and their allies to instantly travel wide distances between two points in space. The portal is sustained as long for as the user is alive, which means that it will vanish if the user is killed.
+Underlord is the most learned and well-practiced user of this dark art, having mastered all of the spells that are listed here.

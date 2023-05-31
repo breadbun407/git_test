@@ -1,0 +1,2 @@
+Hellwethers are a species of ram-like creatures. The name is a bastardization of "bellwether," a term commonly used by ancient herding tribes in Slom and the Bleeding Hills, and later recorded by Ultimyrian scholars. It was unclear to the Ultimyrian scribes of the time if the Hellwether Ram was mythical, or a real creature. Later events would strongly suggest the latter.
+The  Vanguard shield is adorned with the image of a hellwether.

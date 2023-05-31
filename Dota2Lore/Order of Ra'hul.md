@@ -1,0 +1,1 @@
+The Order of Ra'hul is an organization that forged the cursed chains used to bind Balanar, the  Night Stalker. The chains subdued his ancient power, but Balanar eventually broke free of the chains when "darkness" fell. Nothing else is known of the order.

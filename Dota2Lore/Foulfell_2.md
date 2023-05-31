@@ -1,1 +1,0 @@
-Condemned for stealing from the Demon Lords, Terrorblade was imprisoned in Foulfell, where he learned to manipulate his reflections. Eventually, he shattered the walls into fragments, and broke out of Foulfell.

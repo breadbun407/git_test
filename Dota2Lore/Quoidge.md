@@ -1,0 +1,2 @@
+Quoidge is a city where many civilized undead beings and slovenly butchers reside in. It is to the north of the Fields of Endless Carnage. It was created by the god Mars, possibly after a battle. Pit fighting is one of the few sports that are played in Quoidge. The undead tailor Carl is a possible resident of this city, where he fashions clothing out of organic materials found in corpses.
+Mireska and Jex have been to Quoidge, where they found it miserable.

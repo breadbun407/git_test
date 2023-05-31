@@ -1,0 +1,2 @@
+The Sacred Orb is a green, luminous sphere owned by Nyx, the queen goddess of the zealot scarabs. Once every thousand cyclings of the hive, she gives the orb to one of her Nyx Assassins, who must endure a painful molting to embed the orb into his carapace. The Sacred Orb then grants its wearer heightened perception, with which Nyx Assassin uses to track down his targets.
+The artifact is likely kept in the Hidden Hive, where the Nyx probably resides.

@@ -1,1 +1,0 @@
-Cedric was an alchemist who crafted a pair of golden bracers capable of manipulating the spacetime fabric. After his dark conversion, it was taken by the Enigma.

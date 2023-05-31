@@ -1,0 +1,1 @@
+Bloodwoods or Redwoods are a species of tree, likely growing in the Western Forests. They are extremely long-lived, with some individuals living thousands of years. Like their name suggests, their wood is red, and prized for carpenters and artisans.

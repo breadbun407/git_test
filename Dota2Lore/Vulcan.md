@@ -1,0 +1,1 @@
+Vulcan is a deity in the lore of Dota 2. He is the forge god of the pantheon that consists of the likes of Zeus and Mars, having forged the latter's legendary spear which still glows hot with the heat of his fires. He also created Mars' shield.

@@ -1,0 +1,1 @@
+Edwig Otto is an acolyte of the House of the Cunning. He broke into the house with Dagin Two-Sticks and Zev Vizarla, passing the test. Edwig contributed by translating an ancient rotting scroll that revealed the location.

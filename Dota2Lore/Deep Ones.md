@@ -1,0 +1,3 @@
+The Deep Ones are a faction charged with guarding the Deep Vault, which contains the vast treasures of sunken cities, once high in the mountains.  Slardar is its most prominent member, sent out to scout and hunt down those who would thieve from the treasury. It's unknown whether or not the faction is exclusive to the Slithereen, or open to other races.
+A unit of elite guards protects the Deep Ones, once led Slithice, who defended a vault located at Crey. She has since been banished by the Deep Ones after it was revealed that a chalice had been taken from the trove, and may only return if she successfully retrieves the missing chalice.
+Members who betray the Deep Ones are sent to the Dark Reef prison.

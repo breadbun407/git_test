@@ -1,1 +1,0 @@
-The Earth-like planet of Dragon's Blood is pretty much like Dota 2's Earth which is, by extension, very much like real-life Earth.

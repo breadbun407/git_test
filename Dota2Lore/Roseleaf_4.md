@@ -1,1 +1,0 @@
-The Bronze Legion met the Red Mist army in battle at Roseleaf, apparently with disastrous results for Tresdin. Mireska, having visited the site again later, found the Bullsnake Flag in the ruins of Roseleaf.

@@ -1,0 +1,4 @@
+The Eternal Crucible (also known as the Eternal Furnace) is a divine implement in the lore of Dota 2.
+Purifying flames roar and flare within the Eternal Crucible. It is stated that its flames can purge the powers of those who are placed and locked inside of it. Because it is described as an eternal object, the furnace may have something about it that is eternal, such as its flames which burned Wukong for 49 days.
+Ember Spirit owns the Eternal Crucible. He agreed with his brothers to burn Wukong in it for 49 days to purge his heavenly powers as punishment for his crimes, but failed.
+Monkey King was consigned to the furnace's fires for 49 days by the Celestials, that he may be purged of his heavenly powers and punished for his crimes. Instead of being burned, the stories say that he resented at first before resolving to be stronger, realizing his limits. Unable to die, he was soon empowered by the fires that never consumed him.

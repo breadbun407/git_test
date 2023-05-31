@@ -1,0 +1,1 @@
+The Mighty Leviathan is a ship in Kunkka's new fleet, acquired after he washed up on Keenish shores after the battle of Trembling Isle. It is said to hold countless treasure chests in its hull, to which Kunkka has the keys.

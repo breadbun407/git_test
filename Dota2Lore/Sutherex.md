@@ -1,0 +1,1 @@
+Sutherex is the benevolent king-mage of The Hoven. He is at least three hundred years old. When the demon Maraxiform emerged from Sixth Hell, Sutherex cast a spell that ensured any hero who defeated the demon would be granted eternal life. Clinkz eventually earned this reward, although he did not know the spell was in place when he battled Maraxiform.

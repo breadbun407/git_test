@@ -1,1 +1,0 @@
-According to Darkterror, unknown forces in Claszureme will visit unpleasant consequences upon him if he fails to attain victory in the mortal dimension. When he is defeated, he returns to Claszureme. Darkterror also appears to reference a number of gods, but no further detail is given.

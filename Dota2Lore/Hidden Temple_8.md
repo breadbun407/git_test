@@ -1,1 +1,0 @@
-Mercurial also serves the Hidden Temple, but does not always follow instructions.

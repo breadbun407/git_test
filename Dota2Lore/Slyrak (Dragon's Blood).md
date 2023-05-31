@@ -1,0 +1,5 @@
+
+Slyrak is the Ember Eldwurm in Dota: Dragon's Blood animated series.
+Overtime after that encounter Davion had nightmares and when he transforms into Slyrak his clothes burn until the Invoker give Davion an armor that cannot break if he transforms. Later on Davion and Slyrak came to an understanding. He even formed a truce to Kaden to stop Viceroy Kashurra. Later, he released Davion from his bounds to fight Terrorblade in Foulfell.
+Like all Eldwurms, Slyrak is immortal in a sense that he can reincarnate as long as there is a suitable host body for his soul to take up residence. Upon death, he finds the next oldest dragon of his type (which in his case is an ember dragon) before filling their soulless body with his own soul. The vessels he possesses are not immortal themselves, so they all die naturally like any living creature, but it is said that they have long lifespans and grow stronger in both physical strength and their respective elemental powers as they mature and age rather than wither into weaker dragons.
+

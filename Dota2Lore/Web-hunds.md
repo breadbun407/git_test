@@ -1,0 +1,1 @@
+Web-hunds are a species most likely resembling a spider. Whether or not they are sentient is unknown. Rigwarl once broke five of a web-hund's legs, suggesting it has many. This occurred in a tavern between Slom and Elze, perhaps hinting at their distribution in the world.

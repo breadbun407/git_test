@@ -1,0 +1,1 @@
+The Serpent Clan was a druidic order, related to the Bear Clan and the Dragon Clan. Its members included haruspices, who foretold the future by observing the entrails of beasts, particularly snakes. Their divination foresaw the fall of the druidic clans, prompting one haruspex to give Sylla their sacred vestments before their doom arrived.

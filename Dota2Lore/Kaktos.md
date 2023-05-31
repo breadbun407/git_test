@@ -1,0 +1,1 @@
+Kaktos is a mysterious figure in the world of Dota 2. Nothing is known about him, save that there is a sect devoted to him, of which  Nyx Assassin is a member. He may be a zealot scarab, or related to them.

@@ -1,0 +1,1 @@
+The Mono Militis is a sect among the Vigil Knights, tasked with hunting down members who've strayed from the teachings of the Vigil Codex. It is known for its strange helmets that obstruct the wearer's natural vision, instead using a cats-eye gemstone to provide enhanced sight through magical scrying. The same cats-eye gemstone is used as the sect's sigil.

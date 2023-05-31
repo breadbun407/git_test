@@ -1,0 +1,2 @@
+The Korumite are a group of long forgotten scholars and monks, who studied both martial and arcane arts. Despite this, they were humble and did not presume to know how to use their magic properly. Almost nobody remembers the Korumite except for Inai, who finds them worthy of respect. His temple was built after a Korumite design.
+Carl, the  Invoker is also one of the few who remember the Korumite, and even knows a number of their incantations.

@@ -1,0 +1,4 @@
+Knollen is a land of mountainous valleys. It is inhabited by Keen, and is the homeland of Kardel Sharpeye, the  Sniper. Steepstalkers live among its peaks, as do Trolls, which are sometimes shot at by the Keen.
+The Keen of Knollen are highly proficient with firearms. When a Keen father dies, his gun is passed down to his son. In order to become a full member of the village, a young Keen must pass an ancient test: kill a steepstalker in a single shot from the valley floor. To miss is to be disgraced. When Kardel killed his steepstalker, the bullet pierced the creature's central eye, and fell into its mandibles, signifying both his greatness and a dark omen. He was to achieve great renown on a battlefield, or never return.
+Cigar smoking is also common in Knollen.
+Knollen is known for its midsummer carnivals, where games like target shooting can be played, and tickets won.

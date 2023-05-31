@@ -1,0 +1,1 @@
+The Gilded Falcon is a bird of prey, characterized by its golden plumage. Their natural habitat is likely the Western Forests, where they are worshiped as a sacred creature by its native peoples, including those of the lost Zaru'Kina village, who use its likeness as a sigil.

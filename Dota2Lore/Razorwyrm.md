@@ -1,0 +1,1 @@
+Razorwyrms are a species in Dota 2, possibly related to Dragons.  Ursa once killed a razorwyrm, and now uses its bones as armor. According to the  Tome of Knowledge, Razorwyrms are an endangered species.

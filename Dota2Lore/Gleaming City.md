@@ -1,0 +1,1 @@
+The Gleaming City is a place in the Dota 2 world, possibly the same location as Levinthal. It had a number of Electors, one of whom was the Duke of Levinthal. The city was likely destroyed by Ostarion's armies.

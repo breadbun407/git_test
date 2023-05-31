@@ -1,0 +1,1 @@
+Fell-deer are one of many species kept in the royal menagerie of Slom.  Beastmaster rode a "royal stag", who leapt over the walls and carried him to freedom. It is not known whether or not this stag was a fell-deer.

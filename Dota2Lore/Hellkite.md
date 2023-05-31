@@ -1,0 +1,1 @@
+Hellkites are a species, likely a type of bird. According to one rumor, the hunter Soruq was condemned as a criminal after killing a prince's prized Hellkite, and was later captured by Gondar to face judgment. Judging by its name, hellkites may originate somewhere in the Seven Hells.

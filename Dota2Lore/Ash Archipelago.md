@@ -1,0 +1,1 @@
+The Ash Archipelago is a chain of islands, located in the tropics. It is a popular retirement destination for Keen, and may be near Keen lands. Aurel was a former soldier who retired to the Ash Archipelago, where he developed and tested his Gyrocopter.

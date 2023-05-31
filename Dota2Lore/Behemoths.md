@@ -1,0 +1,1 @@
+Behemoths are a species in the Dota 2 world. Not much is known about them, save that they are large, possess two tusks, and a very prominent horn.  Earthshaker sometimes wears the remains of a behemoth, using its horn as a totem. Due to their affiliation to Earthshaker, behemoths may be native to Nishai.

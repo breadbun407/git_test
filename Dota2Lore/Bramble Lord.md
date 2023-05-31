@@ -1,0 +1,1 @@
+The Bramble Lord was an ancient sovereign, scarcely remembered today. He had the power to "catch and pierce" lives.  Phantom Lancer owns a set of armor made in the Bramble Lord's image, which are designed to be just as good at piercing as they were at tearing.

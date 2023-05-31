@@ -1,1 +1,0 @@
-Powerful relics, like the Adoring Wingfall hammer, are kept in the vaults of Emauracus. The forgemaster of Emauracus claims he is the best smith alive, but even he is amazed by the armors forged by the first knights who received the Omniscience's blessing.

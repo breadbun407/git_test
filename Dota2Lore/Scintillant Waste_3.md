@@ -1,1 +1,0 @@
-The eastern section of the Scintillant Waste is characterized by extreme heat. It is inhabited by artisans, who forge weapons and artifacts from gold. They worship a Solar Goddess. To combat the heat, the locals wear lightly colored clothing. Lina has been to the eastern wastes, and likely Gondar as well.

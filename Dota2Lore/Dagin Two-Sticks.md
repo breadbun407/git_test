@@ -1,0 +1,1 @@
+Dagin Two-Sticks is an acolyte of the House of the Cunning. He broke into the house with Edwig Otto and Zev Vizarla, passing the test. Dagin contributed by watching the house for months and finding a sewage tunnel to sneak into the building.

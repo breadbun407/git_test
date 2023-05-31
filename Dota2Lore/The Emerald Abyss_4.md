@@ -1,1 +1,0 @@
-Mushlings inhabit the abyss, where they hunt and eat beetles and axolotls. Giant drills are seen jutting out of the ground, possibly the work of Eimermoles. These drills are novel to the Mushlings, who have been seen worshipping them.

@@ -1,0 +1,2 @@
+The Sylvan Guard is a faction that patrols the forests near Drow lands. They carry fine bows, and move in stealthy silence. Each bowman carries arrows custom made for them.
+Drow Ranger sometimes spies on the Sylvan Guard, passing through their mind. She has great admiration for their skills, and even more for their fashion. On occasion, she puts on their armor, and pretends to be part of the Sylvan Guard.

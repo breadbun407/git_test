@@ -1,0 +1,4 @@
+Maelrawn, or Maelrawn the Tentacular, is an abyssal god that lives in the ocean depths. He is described as having tentacles, and likely resembles a giant cephalopod. According to  Tidehunter and  Naga Siren, Maelrawn resides in a gigantic whirlpool. Slithice also speaks of "he who cracked the shell of the world", perhaps referring to Maelrawn.
+During the battle at the Trembling Isle, Maelrawn was summoned by Tidehunter. With his tentacles, Maelrawn churned the water and wind, and destroyed the two opposing fleets of the Claddish Navy and the Demons of the Cataract.
+Maelrawn is worshiped by many Levianths, who frequently plunder the sunken cities for treasure to bring as tribute. One such attempt occurred at Crey, where a force of one hundred Slithereen Guard, commanded by Slithice, clashed and defeated a Levianth army.
+On the other hand, the Slithereen appear to despise Maelrawn, especially Slithice, who vows to end his existence.

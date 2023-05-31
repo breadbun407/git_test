@@ -1,1 +1,0 @@
-With bad news  Outworld Destroyer comes, drawn to this planet―the Ancients' battlefield―by a threat that he senses will stir from within reality just as it lurks from without.

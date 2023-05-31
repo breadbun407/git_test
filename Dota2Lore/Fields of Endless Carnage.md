@@ -1,0 +1,2 @@
+The Fields of Endless Carnage is a battlefield to the far south of Quoidge. It is strewn with the dead, who are unable to decompose for reasons unknown. Pudge used to roam the fields, cutting up flesh and devouring them.
+Clerics from the Cathedral of Rumusque made a pilgrimage to the fields, possibly to cleanse it of corpses. The way they did this is described by Donte Panlin as "dark". Pudge left the area before the clerics arrived, and was not purged in the process.

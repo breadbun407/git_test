@@ -1,0 +1,1 @@
+Beastmaster's Father died when  Beastmaster was only five. He was a farrier for The Last King of Slom before being killed by trampling beasts. His death resulted in his young son, Karroch, being forced to work in the royal menagerie.

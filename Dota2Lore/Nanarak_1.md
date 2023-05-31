@@ -1,1 +1,0 @@
-Nanarak is a desert area near the Outlands.

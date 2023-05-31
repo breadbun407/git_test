@@ -1,0 +1,1 @@
+The Scrolls of Haize are a mysterious document, possibly associated with the Faerie Dragon race. Puck is well-versed in its contents, and briefly reveals one simple doctrine from the texts: With youth comes grave responsibility.

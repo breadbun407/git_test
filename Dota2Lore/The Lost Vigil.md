@@ -1,0 +1,1 @@
+The Lost Vigil was a group of Vigil Knights who went missing on patrol. While most assume that they were lost at sea, others believe they drifted to Ashkavor, where they were seen in the nearby mountains near Fellstrath.

@@ -1,1 +1,0 @@
-Singer's Gulch is a valley, known for its giant resonating crystals. It was probably named such because of the sound the crystals make. Meepo has spent years digging in Singer's Gulch, where he finally found one large resonating crystal. His attempts to sell it has so far been unsuccessful, as no one wants to buy it on account of how much noise it makes.

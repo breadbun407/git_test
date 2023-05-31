@@ -1,0 +1,2 @@
+The Sunbreeze Family is wealthy family of Fae from the city-state of Revtel. Is it headed by Mireska's Father, a devious and tyrannical merchant king. The Sunbreezes are known for being treacherous and deceitful. The family's prized birthright is a relic made of rose thorns.
+Chafing against her father's rule, the young Mireska rebelled by burning down the family estate, stealing the family birthright, and running off with her companion wisp. Ever since that day, her father has sought her return by any means necessary, including hiring bounty hunters to hunt her down.

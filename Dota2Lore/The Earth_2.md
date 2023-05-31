@@ -1,1 +1,0 @@
-The planet of Dota 2 is a huge rock with life on it.

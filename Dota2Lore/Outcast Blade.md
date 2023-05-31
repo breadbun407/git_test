@@ -1,0 +1,2 @@
+The Outcast Blade is an enormous weapon capable of cutting through swaths of foes at once. It was originally owned by the Vigil Knights, but was taken by  Sven as retribution for killing his father. The Vigil Knights continue to seek out Sven in an attempt to reclaim the Outcast Blade. Because of its immense size, Sven holds it with one hand on handle shaft, and one hand on the handle ring.
+Early model of the Outcast Blade

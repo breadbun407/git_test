@@ -1,1 +1,0 @@
-Tusk lives around the Barrier, where he sometimes attempts to climb its peaks. Icewrack wolves also live near the Barrier.

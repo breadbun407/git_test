@@ -1,0 +1,1 @@
+Flockheart is a firelark who got separated from her family and flock, which the Goddess of Luck had put Aggron Stonebreak in charge of watching over. For some reason Flockheart ended up being Aggron's mount after she got lost, and is now trying to reunited with her family.

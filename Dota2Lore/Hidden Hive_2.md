@@ -1,1 +1,0 @@
-The Hive is embedded with crystals that enhance the scarabs' abilities.

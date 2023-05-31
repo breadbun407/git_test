@@ -1,0 +1,1 @@
+The Lunar Moth is a sacred creature, likely native to the Nightsilver Woods. Its wings and scales are used to craft armor. Glossamar may come from the Lunar Moth. The Lunar Moth is able to spawn felmoths, a strange hybrid creature with both feline and moth features.

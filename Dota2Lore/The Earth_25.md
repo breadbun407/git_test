@@ -1,1 +1,0 @@
-Viper the Netherdrake hails from the subterranean Nether Realm, which is implied to be located near the planet's tectonic plates.

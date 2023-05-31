@@ -1,1 +1,0 @@
-Existing far beyond our material world which is a shadow of this plane, the greater elemental plane is the domain of the elements and the elementals' home.

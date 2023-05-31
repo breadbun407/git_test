@@ -1,0 +1,2 @@
+The Redmoon Order is a mysterious organization. It is led by a master, who indoctrinates initiates into the order. Lanaya was once offered this indoctrination, which she refused at first, but accepted when she saw the mysterious armor worn by its members.
+The order faces an unnamed "ancient foe" with extremely attuned senses, capable of detecting an assassin even if one hair is out of place. Lanaya was likely sent by the order to carry out assassinations against this ancient foe, during which she wears a tight hairclip.

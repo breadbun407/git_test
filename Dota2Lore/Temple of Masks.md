@@ -1,0 +1,1 @@
+The Temple of Masks is likely located on the Isle of Masks. It is dedicated to the Maker of Masks. Prior to the destruction of his homeland, Yurnero made pilgrimages to the temple, where he performed rituals to the Maker. After its destructions, Yurnero continued to worship and perform his rituals on the battlefield.

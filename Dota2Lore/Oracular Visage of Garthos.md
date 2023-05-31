@@ -1,0 +1,1 @@
+The Oracular Visage of Garthos is an element in Dota 2 lore. Its exact description is unknown, but could be assumed to be a large mountain, stony formation, or monument. It is speculated that  Tiny may have once been a fragment broken off from it.

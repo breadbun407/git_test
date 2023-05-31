@@ -1,0 +1,4 @@
+The Bonemeal Ogres are a clan of ogres named after their territory in Bonemeal Ridge, led by the ogre lord Bogdugg. Its members prey upon any intruders who are unfortunate enough to find themselves in their domain, trapping them in cages before taking them out to cook them in a stew.
+One particular Bonemeal Ogre named Burp tried to capture one of Ankaboot's young in Silkmire Pass, but he was caught by its mother and spun up in a cocoon for later consumption. Depending on the player's choice, Burp was either freed by the Heroes and aided them later on in the siege against Rhyzik's forces or simply left behind with his fate unknown.
+The Bonemeal Ogres seek to drive away the Longclaw clan from the Howling Weald, but their leader Bogdugg is not quite fond of battle planning. Thus they have hardly made any progress over the course of a generation.
+They may have an animosity towards the spiders of Silkmire Pass.

@@ -1,0 +1,6 @@
+Draca eels are a strange species of fiery creatures in the lore of Dota 2.
+The draca eels swim without discomfort in the high pressure magma rivers of Krulcsar.
+Draca eels are tough creatures, so tough in fact that the rumors about these eels say they're “unkillable” because of unknown attributes. Relatedly, the eels are capable of comfortably dwelling and swimming in the high pressure magma rivers of Krulcsar, proof of their durability.
+It's implied draca eels may breathe fire, since the ability icon for  Burning Spear with their cosmetic depicts them doing so. Not to mention that puffs of fire come out whenever they chomp with their jaws. These eels are known to have secretions that produce deadly eternal fire, which can only be released when they're exposed to the surface's low pressures.
+After  Huskar heard of the rumors of Krulcsar's Draca Eels before realizing their true potential in the midst of a firelodge vision quest, this sacred warrior sought out a live one for its power. Wielding one as his new spear, Huskar used his Nothlic power to commute a fatal fire to a blazing transformation, warping his body with the eel's fiery aspects and power.
+Their draconic appearance, the name draca, their natural ability to wield fire, it's possible that draca eels are related to dragons.

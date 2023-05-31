@@ -1,0 +1,1 @@
+Wraiths are ethereal beings that feast on energy. They often cross into the Terrene Plane, as they absorb ten times the energy they consume there compared to their home realm. For this reason, some wraiths serve Zet in exchange for energy.

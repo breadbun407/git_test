@@ -1,0 +1,1 @@
+The Demon Lords are the rulers of the demon race. The impose a set of laws and rites throughout the Seven Hells. Terrorblade once stole from the Demon Lords, resulting in a violent trial, and his being confined in Foulfell.

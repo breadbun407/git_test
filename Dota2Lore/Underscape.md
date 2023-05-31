@@ -1,0 +1,2 @@
+The Underscape is a realm where souls go after dying. It is preceded by the Narrow Maze, a system of passages that sorts souls according to their ability.
+Razor, the Lightning Revenant, lives in the Underscape, and considers himself a humble servant to some unknown power. The Book of the Dead is presumably kept somewhere in the Underscape. As Razor spends more time on the surface world, the Underscape's powers began to seep inexplicably into his whip, adding a dark tinge to his usual lightning.

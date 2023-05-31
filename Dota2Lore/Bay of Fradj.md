@@ -1,0 +1,1 @@
+The Bay of Fradj is a body of water that surrounds, or is adjacent to, the Jidi Isle. Its waters are calm, allowing the herbalist Lesale to cross it on a coracle. The Fradjan Moth is named after the bay.

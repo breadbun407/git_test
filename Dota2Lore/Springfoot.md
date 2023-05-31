@@ -1,0 +1,2 @@
+Springfoot is a character in the lore of Dota 2.
+Little is known about Springfoot. All that we known about him is that he is the High Druid of the Verdant Guild who opposed the planned city expansion of White Spire because it involved destroying the surrounding forest to make room. He rallied his fellow druids and recruited potential volunteers through pamphlets to preserve the forest and stop White Spire's expansion.

@@ -1,1 +1,0 @@
-At the edge of the Scintillant Waste is a massive crater, in which the Solar Forge was found. The ancient city of El'Harath is probably somewhere in the Scintillant Waste.

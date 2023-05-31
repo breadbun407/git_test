@@ -1,1 +1,0 @@
-The clerics of Rumusque are opposed to the corruption of the Dead God. To combat his influence, they ventured out on a pilgrimage to the Fields of Endless Carnage, where countless corpses laid. They purged the land through unknown methods, although Donte Panlin describes their tactics as "dark times". Pudge left the fields before the cleric arrived, and was therefore not purged.

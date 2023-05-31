@@ -1,1 +1,0 @@
-According to the  Kidvoker, the  Blink Dagger can cut through space. Perhaps he means the space between the user and their destination is negated, hence it's cut.

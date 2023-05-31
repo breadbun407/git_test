@@ -1,1 +1,0 @@
-Mireska and Jex have been to Quoidge, where they found it miserable.

@@ -1,0 +1,1 @@
+Stryders are a reptilian species which can be found in upland Druud. They are used as mounts by the Oglodi people inhabiting these lands. There exists a sub-species known as Archtyrex stryders, of which only one specimen is known to still exist.

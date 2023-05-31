@@ -1,0 +1,1 @@
+Crocodylians are reptilian beings that inhabit the jungles of Fellstrath. They resemble upright crocodiles with grayish skin. Since the fall of the Overgrown Empire, the Crocodylians now roam over its ruins in packs. They appear to be more intelligent than animals, as they make use of weapons and magic.

@@ -1,0 +1,2 @@
+The Ruined City is a location in the Wailing Mountains. The Order of the Oyo resides in a valley beneath it. According to Mangix, the  Brewmaster, the city is home to "wheel books", which produce sounds he likens to songs. The Spade of the Gluttonous is designed to symbolically resemble to the wheel books.
+The Brewmaster instructs  Storm Spirit to bury him beneath the Ruined City, hinting at a shared background from their early days.

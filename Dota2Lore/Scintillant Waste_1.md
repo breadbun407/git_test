@@ -1,1 +1,0 @@
-The Scintillant Waste is a desert land. It is likely located to the east of the Desert of Misrule. The sands of the desert are sentient, thinking thoughts and interacting with the outside world through its ambassador, Crixalis. It is home to various species of arachnids. Quicksand can be found in the wastes, and has claimed many explorers. The kingdom of Qaldin is nearby.

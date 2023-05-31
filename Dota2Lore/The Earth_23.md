@@ -1,1 +1,0 @@
-Born from the Nishian earth of the planet,  Earthshaker rises from the soil to answer the call to protect the earth with the life and strength it has given him.

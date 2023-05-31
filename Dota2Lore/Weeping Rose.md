@@ -1,0 +1,5 @@
+Weeping Rose is a magical city, shrouded by perpetual nightfall. The Quorum rules over Weeping Rose, and are known to grant gifts and favors for a price. Valuable goods are sold at Weeping Rose, including rare books and possibly even gorgons.
+Mireska has been to Weeping Rose, but was kicked out for reasons unknown. She now endeavors to return and rob Weeping Rose.
+Lion is seeking harbor in Weeping Rose, and wishes to appeal to the Quorum to grant him asylum. Why he wants this is unknown. Donte Panlin warns him that the Quorum does not give things away for nothing.
+Akasha, the Queen of Pain, visited the exiled demon prince Knogh and his master, the occultist Vanessa, in Weeping Rose. In order to ensure his interests could be represented in the Court of Ristul, Knogh agreed to transfer his birthright to Akasha: forming the Eminence of Ristul.
+Magina, the Anti-Mage, and Nortrom, the Silencer, have both worked for The Tyler Estate, which enforces magical laws in Weeping Rose. When Turath lead a jailbreak at The Tyler Estate, Magina sent his disciple Wei to the city of Weeping Rose to round up and kill the escaped prisoners while he pursued Turath to White Spire.

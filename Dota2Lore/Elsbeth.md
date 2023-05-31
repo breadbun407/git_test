@@ -1,0 +1,1 @@
+Elsbeth is known as the assassin's shadow. She is a powerful member of the Sisters of the Veil. She died, but through a strong connection with the Phantom Veil, her spirit lives on to continue her assassinations.

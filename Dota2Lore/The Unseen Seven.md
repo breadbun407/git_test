@@ -1,0 +1,1 @@
+The Unseen Seven are mysterious beings, known only by their contact with Lanaya. They bestowed upon her a set of armor, crafted from bone, which allowed her to communicate with the dead. Because of their interactions with Lanaya, the Unseen Seven may simply be a different name for the Hidden Ones.

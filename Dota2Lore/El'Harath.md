@@ -1,0 +1,1 @@
+El'Harath was a city, ruled over by the Ancient Sovereign. It now lies in ruins, somewhere near the Scintillant Waste. It was inhabited by scorpion-like beings, similar to  Sand King, but with functional wings.

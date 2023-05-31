@@ -1,0 +1,2 @@
+Ix'yxa the Destroyer is a godlike being hailing from the Nether Reaches.
+His excessive feasting has made him too fat to access known passages between the Nether and the surface world, so he barters favors with others who may help him find new paths that he can travel. However, he is distrustful of those he has bestowed a measure of his power or bartered a favor with, so he sends them an aspect of himself to put his proxies under surveillance. One such recipient is Pugna, who wears a headpiece that holds the eye of Ix'yxa.

@@ -1,0 +1,3 @@
+The Mo'rokai are a pair of monstrous beasts that inhabit the jungles of Fellstrath. They are large, quadripedal beasts, with a crown of horns and a multitude of fangs. Flaring scales grow on its back, forearms and tail. The Mo'rokai exhibit magical abilities over the elements, including the power to summon spirits to do their bidding.
+Among the ruins of the Overgrown Empire, temples dedicated to worshiping the Mo'rokai have been found, defended by stone guardians.
+The two Mo'rokai remained dormant for centuries until they were roused from their slumber by Mireska Sunbreeze, who chanced upon them on her journey to find relics.

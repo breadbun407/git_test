@@ -1,0 +1,3 @@
+
+Lirrak is the Water Eldwurm. Also known as the "Mother of Oceans" and/or the "Mother of Storms", she harnesses the powers of water (in all forms). She lives beneath the stagnant waters of a lake on the top of a cratered mountain, where a field of grass and flowers surround the land around the lake.
+Invoker was able to locate the home of the Eldwurm and summoned his Wex orb to part the waters and reveal her location beneath them before sealing the dragon inside of it. Lirrak was able to break through the orb and attempted to freeze him in retaliation, before he promptly dodged her attack and successfully sealed her again with his Exort orb.

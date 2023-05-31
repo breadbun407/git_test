@@ -1,1 +1,0 @@
-First and only mentioned in Nature's Prophet's biography, the vernal equinox marks the very first morning or the beginning of the spring season.

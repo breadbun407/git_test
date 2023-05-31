@@ -1,0 +1,2 @@
+The Shrine of Selemene is a holy site dedicated to Selemene, the lunar goddess. It is located in the Nightsilver Woods, and was built on the location where a celestial shard fell from the skies when the forest was still young. This shard may have been of an asteroid, perhaps of lunar origin. It was later crafted into a relic for the Dark Moon Order.
+It is unknown if the Temple of Mene and the Shrine of Selemene refer to the different structures.

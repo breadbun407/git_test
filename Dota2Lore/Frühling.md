@@ -1,0 +1,2 @@
+
+Captain Frühling was an inhabitant of Barrowhaven. He commandeered the local soldiers against an attack from a lone earth wyrmling. Davion managed to kill the beast, but many of Frühling's men died in the fight. After the incident, he got drunk and Terrorblade got attracted to his fear and rage. He possessed him and used his body to slay the Eldwurm Uldorak. This angered Slyrak, who incinerated Frühling's body. Terrorblade then took new form in the body of Uldorak.

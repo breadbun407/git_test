@@ -1,1 +1,0 @@
-The inhabitants worshiped the Mo'rokai, a pair of mythic beasts, building temples in their honor. These temples are guarded by stone statues, which have since been imbued and animated by the Ancients. After the empire crumbled, the Mo'rokai went into a slumber, until they were awoken by Mireska Sunbreeze, who came to Fellstrath in search of relics.

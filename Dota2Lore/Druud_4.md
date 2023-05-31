@@ -1,1 +1,0 @@
-Stryders can be found in upland Druud, and are used as a mount by the Oglodi.

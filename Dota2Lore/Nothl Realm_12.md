@@ -1,1 +1,0 @@
-Access to the Nothl Realm is known only to the Dezun Order, who guards the secrets to the access of the ethereal shade. It involves many methods, one of which involves drinking a sacred potion made of secret ingredients. Another way in includes a dose from the Great Pipe.

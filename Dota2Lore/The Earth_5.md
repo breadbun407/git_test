@@ -1,1 +1,0 @@
-The Omniscience's revelation to Purist says that it was the former who made this world by forming a vast mineral shell around itself to defend against extraterrestrial hostiles.

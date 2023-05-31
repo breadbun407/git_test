@@ -1,1 +1,0 @@
-Foulfell is a prison plane, a hidden dimension where demons imprison their outlaws. It may be one of The Seven Planes. Foulfell's interior is described as a dark mirror of reality, lined with fractal walls that reflect the images of the imprisoned. It is sometimes called the Hell of Hells, indicating that it is inside or connected to the Seven Hells.

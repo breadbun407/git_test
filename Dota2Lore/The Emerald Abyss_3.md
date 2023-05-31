@@ -1,1 +1,0 @@
-The Emerald Abyss is a subterranean location, possibly near The Underhollow. It is a land of green crystals, geodes and bismuth formations, although statues made by some unknown race can also been found in the abyss. Mushroom and other fungi grow densely in the caves, which are home to pale axolotls.

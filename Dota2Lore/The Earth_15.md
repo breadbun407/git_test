@@ -1,1 +1,0 @@
-A vast network of sunken cities lies deep in the lightless gulf of the deepest ocean abysses. This web of structures is a treasure trove that is fiercely guarded by vigilant Slithereen.

@@ -1,1 +1,0 @@
-Most of the natural wildlife have been scared away by the wars between the Longclaw clan and the Bonemeal Ogres. The only remaining animals in the Weald are the most fearsome Hellbears and Dire Wolves.

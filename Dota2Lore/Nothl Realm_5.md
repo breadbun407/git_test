@@ -1,1 +1,0 @@
-Dazzle states that his magic (which is sourced from the Nothl Realm) invokes the power of all realms. What this exactly means is currently unknown.

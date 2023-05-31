@@ -1,1 +1,0 @@
-Bad Juju is the side effect of any Nothl rituals. Any invocation of the Nothl's power causes the realm to leak into our world, inflicting unknown dangers to those already afflicted by its Nothlic rituals.

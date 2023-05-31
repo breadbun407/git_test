@@ -1,0 +1,3 @@
+Foulfell is a prison plane, a hidden dimension where demons imprison their outlaws. It may be one of The Seven Planes. Foulfell's interior is described as a dark mirror of reality, lined with fractal walls that reflect the images of the imprisoned. It is sometimes called the Hell of Hells, indicating that it is inside or connected to the Seven Hells.
+Condemned for stealing from the Demon Lords, Terrorblade was imprisoned in Foulfell, where he learned to manipulate his reflections. Eventually, he shattered the walls into fragments, and broke out of Foulfell.
+Black crystals called Foulfell Shards originate from the prison plane, each shard containing imprisoned demons. They throb with the voiceless hatred of their prisoners, and interact with demons in unknown ways.

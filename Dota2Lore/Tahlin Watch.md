@@ -1,0 +1,1 @@
+The Tahlin Watch were the royal guardians of the House of Tahlin, reserved to particularly talented individuals. They were slain when the house was overthrown.  Riki still has armor from the Tahlin Watch, when he borrowed them as a disguise to escape the chaos.

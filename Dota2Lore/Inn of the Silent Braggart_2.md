@@ -1,1 +1,0 @@
-Sly Cuttles Quirt Sithil The Rogue's Guild

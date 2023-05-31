@@ -1,1 +1,0 @@
-Cigar smoking is also common in Knollen.

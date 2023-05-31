@@ -1,1 +1,0 @@
-The Blueheart Glacier is a frozen river that runs through Icewrack. It likely originates somewhere within The Barrier, and flows into the Boiling Sea. Sapphires can be found in the glacier, and are valued by the artisans of the Frostiron Tribe.

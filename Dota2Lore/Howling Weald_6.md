@@ -1,1 +1,0 @@
-The Kalabor Desert is separated from this place by a mountain pass that its inhabitants use to travel to the Weald for refuge from Rhyzik and his forces. However, there is another shortcut connecting these two places in the Temple of Ermacor. Within this temple is the Grimwal Gate that blocks the way between the two lands, which requires the two Orbs of Passage to open.

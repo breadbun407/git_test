@@ -1,0 +1,1 @@
+Midas is a famous alchemist, considered its most successful practitioner. He designed the Midas Knuckles to help compensate for the costs of war, so that knights could transmute gold in battle. His relation to  Hand of Midas is unknown.

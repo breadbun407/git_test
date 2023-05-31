@@ -1,1 +1,0 @@
-The Outlands is a blanket term all the lands past the Dread Marsh, and near Nanarak. Other parts of the outlands include Praxa'cia and Krimwohl.

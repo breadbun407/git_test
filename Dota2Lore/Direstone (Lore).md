@@ -1,0 +1,2 @@
+Direstone is a mineral, scattered from the destruction of the Mad Moon. The  Radiant equivalent is Radiant Ore. Together, the two are known as the Nemesis Stones.
+Direstone was used by Abzidian to create  Demon Edge's hilt. The mineral is described to be lightweight and easy to counterbalance, making it suitable for crafting weapons, specifically scythes. It is also embedded into the buildings of Dire ancients, as well as the equipment of Dire creeps.

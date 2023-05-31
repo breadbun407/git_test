@@ -1,0 +1,3 @@
+
+The Helio Imperium is a location frequently mentioned by Davion. Stonehall plans to conquer the Helio Imperium. Something happened in this place, which involved Lina and Davion. There is a "Shoehorn" in this place, where a person that resembles the Alchemist (either referring to Razzil or the ogre, the latter made a cameo appearance in Dota: Dragon's Blood) lives in.
+In Dragon's Blood, Drysi briefly mentions the Helio Imperium when she confronts Luna and her Dark Moon troops. She recalls that they were sold out to the Helio Imperium by Luna, possibly giving some context on Luna's betrayal towards Drysi.

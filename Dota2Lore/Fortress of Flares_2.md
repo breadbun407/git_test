@@ -1,1 +1,0 @@
-A pair of relic rapiers were kept in the fortress, which came alive with fire when picked up by the reincarnated Xin.

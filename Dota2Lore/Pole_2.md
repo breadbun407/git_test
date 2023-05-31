@@ -1,1 +1,0 @@
-The waters near Pole are filled with fish large enough to eat an man in a single bite. One of these giant fish may be Niuhi. Wildwings also live near Pole. The villagers honor all animals that they take for food.

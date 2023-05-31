@@ -1,0 +1,1 @@
+The Vigil Keep is the fortress base of the Vigil Knights. It housed the order's artifacts, including the Vigil Codex, the Outcast Blade, the Sacred Helm, and the Holy Flame. The Inner Colonnade, where the Holy Flame is kept, may be inside, or near the Vigil Keep.

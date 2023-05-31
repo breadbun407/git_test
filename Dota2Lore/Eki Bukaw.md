@@ -1,0 +1,1 @@
+The Eki Bukaw is a mysterious entity. It is either a person, or a cult, possibly centered around a person. Its worshipers wear masks with ruffles reminiscent of a chicken's head. A record of the Eki Bukaw's secrets has been kept, and is in Rhasta's possession. He also owns a pair of bracers attributed to the Eki Bukaw, as well as the legendary Eki Bukaw wand.

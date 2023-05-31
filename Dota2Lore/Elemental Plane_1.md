@@ -1,1 +1,0 @@
-The elemental plane (also known as the elemental realm or elemental force) is a plane of existence in the lore of Dota 2.

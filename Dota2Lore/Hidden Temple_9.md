@@ -1,1 +1,0 @@
-According to rumors circulating among the temple's adherents, the Hidden Ones will soon emerge to reveal more secrets.

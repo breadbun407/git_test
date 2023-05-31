@@ -1,0 +1,2 @@
+The Book of the Dead, or the Book of Life and Death, is a tome of names that records every soul who has died. It is presumably kept in the Underscape, or near the Narrow Maze, where it is routinely updated by Razor.
+During his time in the Narrow Maze, Sun Wukong managed to escape and erase his name and several others from the Book of the Dead. A few blessed individuals have returned to life from the Narrow Maze, although how exactly is unknown.

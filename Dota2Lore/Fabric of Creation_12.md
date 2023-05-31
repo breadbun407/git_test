@@ -1,1 +1,0 @@
-Leshrac's  Pulse Nova manipulates the structure of spacetime with waves of pink and orange energy (possibly the Chronoptic energies), destroying lesser beings around him.

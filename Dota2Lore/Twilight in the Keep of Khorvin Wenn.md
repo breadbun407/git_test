@@ -1,0 +1,1 @@
+Twilight in the Keep of Khorvin Wenn is a poem. It is one of Auroth's favorite poems, which she shares to the minds of those that she has encased in her healing spells, filling their thoughts with its poetic imagery.

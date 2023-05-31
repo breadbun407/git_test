@@ -1,0 +1,3 @@
+Levianths are an underwater race of giant beings. Presumably the only known member of the race is the  Tidehunter Leviathan.
+The Levianths worship Maelrawn, god of the deep. In order to pay him tribute, the Levianths raid the sunken halls and Deep Vault for treasure, bringing them into conflict with its defenders, the Slithereen Guard. At Crey, an army of Levianths clashed with the forces of Slithice, and was repelled. However, a single chalice was found missing afterwards, which may have been taken by the Levianths.
+The Levianths carry long blades of obsidian, some of which were left behind and picked up by Slithice after the battle of Crey.

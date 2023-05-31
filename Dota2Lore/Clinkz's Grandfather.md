@@ -1,0 +1,1 @@
+Clinkz's Grandfather is no longer alive, but his bones have been fashioned into a bow for his grandson, Clinkz. This bow burns with spirit fire, and gives Clinkz "unwanted advice", suggesting that his grandfather is still speaking to him from the beyond.

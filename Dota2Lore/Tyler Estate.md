@@ -1,0 +1,2 @@
+The Tyler Estate is a mysterious institution that works to enforce magical laws and punish rule-breakers. They work with The Quorum in the governance of Weeping Rose. Anti-Mage and Nortrom are notable employees, working for them to capturing renegade magic users like Mireska, as is the Tyler Estate Censor, Votajo.
+Inmates are experimented on at the Estate, with items such as the Witchbane being developed as a result.

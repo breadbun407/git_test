@@ -1,1 +1,0 @@
-The Boiling Sea is located in the north, near the lands of Icewrack and The Barrier. The Blueheart Glacier flows into the Boiling Sea, forming a land of steam and slush. It may be the same as the Northern Sea.

@@ -1,1 +1,0 @@
-The Solar Throne is the seat of  Mirana's Helio Empire (Helio Imperium). Mirana abandoned it in favor of the goddess Selemene.

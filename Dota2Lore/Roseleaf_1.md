@@ -1,1 +1,0 @@
-Roseleaf was the site of one or more battles, and possibly a town before it was destroyed. It may be populated by Treant Protectors and located near the Vale of Augury. Arid lands lie to the far southeast of Roseleaf.

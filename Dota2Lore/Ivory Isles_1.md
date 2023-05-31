@@ -1,1 +1,0 @@
-The Ivory Isles are a series of islands, probably near the Isle of Masks. They were "lost" after their Defender was stolen.  Juggernaut later slew the thieves, and reclaimed the Defender. Corodonts live on the Ivory Isles.

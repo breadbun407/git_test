@@ -1,1 +1,0 @@
-Although much can be said about its natives and inhabitants, little is known about the Isle of Masks, other than its fated destruction in a night of vengeful magic. During that night, fires bubbled up from the sea, causing the surrounding waters of the Isle to boil and submerge the Isle beneath the waves.

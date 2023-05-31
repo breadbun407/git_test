@@ -1,1 +1,0 @@
-Devarque is a kingdom. It is home to the Vile Council, which sentenced N'aix to life in prison for theft. The nobles of Devarque, including their children, were notoriously cruel, devising novel methods of torture to use on N'aix.

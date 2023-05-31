@@ -1,0 +1,1 @@
+Ambinderath was an undead dragon. His domain once laid to the east of Ostarion's kingdom. When Ostarion set out to conquer his land, Ambinderath resisted. However, he was unable to withstand the Wraith King's armies, and was slain. Ostarion then made Ambinderath's jaw into a sword for himself.

@@ -1,1 +1,0 @@
-There is a web or seam that exists between the worlds.

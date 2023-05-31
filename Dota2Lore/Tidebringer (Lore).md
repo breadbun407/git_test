@@ -1,0 +1,1 @@
+Tidebringer is  Kunkka's personal weapon, a legendary sword that strikes multiple enemies with a single swing. It is inhabited by a lost Claddish soul, perhaps summoned by Suicide-Mages during the battle at the Trembling Isle. This soul empowers the weapon to destroy Demons of the Cataract.

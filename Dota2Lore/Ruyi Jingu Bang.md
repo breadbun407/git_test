@@ -1,0 +1,1 @@
+The Ruyi Jingu Bang is Sun Wukong's personal weapon. It is a magical staff that can extend in length according to Wukong's will. The Jingu Bang weighs seventeen-thousand pounds,, and has a long and storied past. At once point, it was used to measure the depths of newly-formed oceans.

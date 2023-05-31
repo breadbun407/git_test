@@ -1,0 +1,1 @@
+Rix was a member of the Bronze Legion, along with Tresdin, before betraying the Legion during the battle of Roseleaf. He is a wolf-like humanoid of the Vhoul race, similar to the other inhabitants of the town. According to Mireska, Rix plans to kill Tresdin in the future.

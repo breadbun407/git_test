@@ -1,1 +1,0 @@
-Fymryn steals the Lotuses from the pool sometimes in order for Mene to Return.

@@ -1,1 +1,0 @@
-Crey is an underwater location, likely the site of a sunken city. Numerous hidden grottoes are located around the area. Umizar may be native to Crey, or live nearby.

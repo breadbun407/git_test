@@ -1,1 +1,0 @@
-But further away beneath these sunken cities is the Infernal Hollow, from where the demon Buki'vak the Corrupted forever spreads his corruption throughout the sea.

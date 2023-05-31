@@ -1,1 +1,0 @@
-Rooftrellen once performed a great feat in Roseleaf, but has since left.

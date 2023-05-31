@@ -1,0 +1,1 @@
+Spitterpedes are an insect-like species, native to the Acid Jungles of Jidi Isle. They resemble large centipedes, and are able to spit venom to disable their prey. The Splattering Forcipule, a distant relative of the spitterpede, is rooted in the earth with subterranean tendrils, which it uses to absorb prey after its carcass is dissolved by its venom.

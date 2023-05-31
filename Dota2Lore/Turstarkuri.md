@@ -1,0 +1,1 @@
+Turstarkuri is a land of mountains. In its rugged valleys lay kingdoms that suffered continuous invasions. On its peaks was the monastery of the Monks of Turstarkuri. Both were invaded and destroyed by the legions of the Dead God.

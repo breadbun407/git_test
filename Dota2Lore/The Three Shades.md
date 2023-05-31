@@ -1,0 +1,1 @@
+The Three Shades are a group of ethereal beings, symbolized by the nightshade plant. They possess the attributes of madness, terror, and death. Arboretums are dedicated to their name, where giant nightshades grow.

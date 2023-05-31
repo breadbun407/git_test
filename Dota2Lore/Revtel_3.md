@@ -1,1 +1,0 @@
-Revtel is governed by three merchant kings: Kwerthias, the Brass Herald, and Mireska's Father of the Sunbreeze Family. His daughter, Mireska grew weary of life in the city, and thus burned down the family estate and fled Revtel with Jex, her companion wisp. According to Mireska, the rulers of Revtel were tyrannical in nature.

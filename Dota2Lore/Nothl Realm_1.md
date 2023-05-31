@@ -1,1 +1,0 @@
-The Nothl Realm is an ethereal dimension in the world of Dota 2.

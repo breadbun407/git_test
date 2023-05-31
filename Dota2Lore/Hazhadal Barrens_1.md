@@ -1,1 +1,0 @@
-The Hazhadal Barrens are a location in the Dota 2 world. The barrens are the birthplace of  Chen, and home of the godless outlaw tribes.

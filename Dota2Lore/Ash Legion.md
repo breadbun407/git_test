@@ -1,0 +1,1 @@
+The Ash Legion was a group of skilled warriors who relished combat. They fought with spears and shields. The Ash Legion challenged the god  Mars and lost, but now serve willingly as undead soldiers for Mars, who summons them to form a circular arena. It is unknown if the Ash Legion is related to the Bronze Legion.

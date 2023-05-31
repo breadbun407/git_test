@@ -1,0 +1,1 @@
+Cholgar are a species of beasts. They are hunted by the ursine people, and their teeth are made into blessed talismans. Cholgar may inhabit the frozen mountains north of the ursine's forest homeland, where they are killed by male ursa during the winter for the safety of their sleeping cubs.
