@@ -12,8 +12,8 @@ with open('links.txt', 'r') as file:
 
     complete_urls = []
     for urls in link_names_list:
-        complete_url = base_url + urls
-        complete_urls.append(complete_url)
+        complete_url = "https://dota2.fandom.com/wiki/Abysm"
+        
 
     # Making a GET request
     for url in complete_urls:
