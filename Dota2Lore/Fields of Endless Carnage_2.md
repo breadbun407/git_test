@@ -1,0 +1,1 @@
+Clerics from the Cathedral of Rumusque made a pilgrimage to the fields, possibly to cleanse it of corpses. The way they did this is described by Donte Panlin as "dark". Pudge left the area before the clerics arrived, and was not purged in the process.

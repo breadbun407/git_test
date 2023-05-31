@@ -1,0 +1,1 @@
+After defeating Vorn, Azwraith decided not to return to Pole, even though he would be welcomed with open arms. This is because he believes that there would be no place for his phantom illusions.

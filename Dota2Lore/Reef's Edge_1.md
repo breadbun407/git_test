@@ -1,0 +1,1 @@
+This terrain was awarded to players who own The International 2017 Battle Pass and leveled it to 150. It comes with the Reef's Edge Loading Screen.

@@ -1,0 +1,1 @@
+The lofty cliffs of Emauracus are riddled with deep caves that lead to the center of the planet itself where the Omniscience dwells.

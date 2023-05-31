@@ -1,0 +1,1 @@
+Born in the village near the vents of the Nether Reaches,  Pugna is another native of this place. He spent his entire childhood in this realm and was groomed at a young age in the neighboring lamasery to become the next grandmaster of Oblivion.

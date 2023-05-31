@@ -1,0 +1,1 @@
+It's unknown if the Lesser Hells are part of the Seven Hells. It's also unknown if they are related to the Outer Hells.

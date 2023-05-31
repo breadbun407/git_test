@@ -1,0 +1,1 @@
+Most of the beings and entities listed below here are natives of the planet.

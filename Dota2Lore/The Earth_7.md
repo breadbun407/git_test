@@ -1,0 +1,1 @@
+In Weeping Rose, there is no day and night cycle and only perpetual night reigns alone, allowing the Quorum to harness the power of the night sky's stars as much as they want.

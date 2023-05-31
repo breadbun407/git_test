@@ -1,0 +1,1 @@
+Prior to its fall, Slom was at war with the kingdom of Elze. A road links Elze with Slom, with many taverns along the way. This suggests that the two rival kingdoms may have been neighbors. Not much is known about the climate of Slom, except that it occasionally snows nearby.

@@ -1,0 +1,1 @@
+Within the city dwells the Abyssal Horde, along with Vrogros, their  Underlord. Seeking conquest and new lands, Vrogos calls on his horde to march from Aziyog to the surface, and do battle with the nations above. Vrogros refers frequently to the Abyss, likely another name for Aziyog.

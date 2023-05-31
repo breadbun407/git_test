@@ -1,0 +1,1 @@
+The Book of the Dead is kept by Razor, who scorches the names of the dead into the pages of the book, possibly using his powers rather than mundane methods like ink.

@@ -1,0 +1,1 @@
+Many are the north's cold climes, akin to the Arctic. There's Icewrack, an icy waste where the Blueheart Glacier is. Azura and Cobalt are just a few of the north's settlements.

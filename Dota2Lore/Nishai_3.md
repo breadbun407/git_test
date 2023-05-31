@@ -1,0 +1,1 @@
+A secret order of weaponsmiths live in Nishai. It is they who crafted the Eclipse Monolith for Earthshaker, a special totem that absorbs sun and moonlight.

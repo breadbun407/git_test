@@ -1,0 +1,1 @@
+Once a great philosopher,  Leshrac sought the meaning of existence via plumbing the depths of reality with the Chronoptic Crystals. Peering through the haunted Crystals, Leshrac alone saw the horrifying truth of nature at its very core that irreparably warped him into the foul being that he is today, at one with the agonizing unnature that he discovered.

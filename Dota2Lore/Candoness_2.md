@@ -1,0 +1,1 @@
+Uldorak was a fearsome dragon who forced the people of Candoness to pay tribute each time a new monarch was crowned. On the day of Tansis XIII's coronation, Sir Davion, the  Dragon Knight ambushed and killed the unsuspecting dragon, thereby earning the gratitude of the royal family.

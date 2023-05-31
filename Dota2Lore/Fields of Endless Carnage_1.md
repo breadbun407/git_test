@@ -1,0 +1,1 @@
+The Fields of Endless Carnage is a battlefield to the far south of Quoidge. It is strewn with the dead, who are unable to decompose for reasons unknown. Pudge used to roam the fields, cutting up flesh and devouring them.

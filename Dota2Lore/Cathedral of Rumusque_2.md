@@ -1,0 +1,1 @@
+The religious group inhabiting the cathedral is often called The Rumusque Faithful.

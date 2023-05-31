@@ -1,0 +1,1 @@
+Such is the heat of the  Dragon Knight's resolve that it combines the elemental and terrene planes into one, presumably allowing him to manipulate the fire element.

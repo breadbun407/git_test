@@ -1,0 +1,1 @@
+A special species of butterfly was discovered in the jungle by Dazzle, where he found that the insect could suck small amounts of energy from the Nothl Realm, but their inefficient feeding causes energy from the Nothl Realm to leak into this one.

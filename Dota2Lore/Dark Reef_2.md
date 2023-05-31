@@ -1,0 +1,1 @@
+Giant guttleslugs infest the prison, eating carrion and the corpses of prisoners.

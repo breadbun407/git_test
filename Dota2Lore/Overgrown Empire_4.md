@@ -1,0 +1,1 @@
+Since custom weather effects only replace the default weather sounds, these sounds are not replaced by them, meaning only these ambient sounds play, no matter which weather effect is equipped.

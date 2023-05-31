@@ -1,0 +1,1 @@
+The Light Brigade may be from this place. Ezalor often leaves them to pay for anything that he buys.

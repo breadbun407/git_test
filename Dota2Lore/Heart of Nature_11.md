@@ -1,0 +1,1 @@
+The core of reality being the source of creation competes in validity with the various creation stories found in Dota 2, such as existence being created from the Elder Titan's great flaw, all of existence being born from the sundering of the Wailing One, the essential threads that compose reality being woven from the Loom, etc.

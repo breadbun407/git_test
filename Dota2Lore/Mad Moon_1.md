@@ -1,0 +1,1 @@
+The Mad Moon was a large, cosmic sphere that orbited the Dota 2 world, the prison of the Radiant and Dire forces, until it destroyed itself in a cataclysmic event.

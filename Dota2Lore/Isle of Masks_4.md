@@ -1,0 +1,1 @@
+Within the Isle of Masks is one of its places of worship, the Temple of Masks, where the Masked Ones once went on pilgrimages to this place. It was submerged alongside the island it was in, rendering it completely inaccessible. Despite this, its only remaining visitor continues to practice the rituals of his faith without the temple.

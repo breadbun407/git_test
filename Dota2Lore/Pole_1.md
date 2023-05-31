@@ -1,0 +1,1 @@
+Pole is a village, and the hometown of  Phantom Lancer. The villagers of Pole were conscripted to fight Vorn, the Dread Magus. The people of Pole are simple, peaceful and catch fish with spears. Settlers came to the village long ago, where they fought off "nightly terrors".

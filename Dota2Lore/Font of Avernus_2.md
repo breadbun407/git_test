@@ -1,0 +1,1 @@
+The black mist itself may be sentient, although its motives are unclear. It chooses mortals to defend it, allowing them to forge weapons in the mist. The mist is also capable of conjuring up creatures for its defenders, such as Netherax.

@@ -1,0 +1,1 @@
+The Nether Reaches (also known as the Nether, the Nether Realm, the Nether Hells) is a subterranean location in the world of Dota 2.

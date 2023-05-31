@@ -1,0 +1,1 @@
+Lyralei, the  Windranger once visited Njord's Hearth, where, despite overwhelming odds, she saved a doomed forest from an unknown threat. For her deeds, she was blessed by a grateful spirit, and the people of Njord's Hearth awarded her a golden circlet.

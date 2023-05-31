@@ -1,0 +1,1 @@
+Weaver found a  Desolator just beyond the rift when he slipped through time. Its existence beyond time was shocking enough to be described as impossible.

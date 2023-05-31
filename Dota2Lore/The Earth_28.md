@@ -1,0 +1,1 @@
+The Omniscience dwells deep within a space in the center of the world, where it can be accessed through the deep caves of Emauracus.

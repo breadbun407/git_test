@@ -1,0 +1,1 @@
+The elemental plane is possibly implied to exist between the planes, since Barathrum (who hails from this plane) says he is from the interstitial space between the planes. If so, then this plane generates a damaging friction on the physical forms of those who slide into this realm. Spirits lost in this plane eventually become minerals to be mined and forged.

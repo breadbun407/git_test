@@ -1,0 +1,1 @@
+The Dark Ones may be somehow related to Dark Reef. Statues of a cephalopod being can be seen around the prison, indicating perhaps a relationship with the god Maelrawn.

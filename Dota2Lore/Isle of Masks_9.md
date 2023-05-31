@@ -1,0 +1,1 @@
+The legendary dragon Akakiryu may have once lived in this island. A sword was named after it and the weapon was awarded to a younger Yurnero long before his exile.

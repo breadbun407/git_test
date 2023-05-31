@@ -1,0 +1,1 @@
+Nishai is a location in the Dota 2 world. It is known for seasonal earthquakes, during which its mountainous peaks dislodge avalanches onto the land. Sealed caverns run below the land, where no light shines save the glow of bioluminescent creatures.

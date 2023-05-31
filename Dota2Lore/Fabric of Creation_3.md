@@ -1,0 +1,1 @@
+It seems that the weave itself may be dangerous to the Weavers and others who are made of it, since they can be caught and entangled in their own weaves or its threads.

@@ -1,0 +1,1 @@
+The Howling Weald is a forest location in the Dota 2 world.

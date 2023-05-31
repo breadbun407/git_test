@@ -1,0 +1,1 @@
+Stonehall was attacked by the Abyssal Horde, led by Vrogos, the Underlord. While Tresdin and the Bronze Legion were able to repel the attack, the city was largely destroyed in the process.

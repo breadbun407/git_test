@@ -1,0 +1,1 @@
+Those of the elemental plane seek victory and success in the war of the Ancients, for defeat in this battle causes unpleasant repercussions in their home.

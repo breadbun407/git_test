@@ -1,0 +1,1 @@
+Void Spirit can create tears in the Astral Plane, allowing him to traverse through and damage everything in his path.

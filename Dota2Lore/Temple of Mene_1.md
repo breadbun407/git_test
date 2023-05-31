@@ -1,0 +1,1 @@
+The Temple of Mene is a temple dedicated to the goddess Selemene, likely located within the Nightsilver Woods.  Mirana sometimes worships there, where she has visions, such as a prophetic vision of her participating in the war of the Ancients.

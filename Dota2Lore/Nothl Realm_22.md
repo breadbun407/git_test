@@ -1,0 +1,1 @@
+In the jungles of Fellstrath, there is a species of butterfly that can draw energies from the Nothl Realm using their proboscis. They are inefficient with their feeding, and each puncture that they make to tap into the Nothl allows its influence to leak into the Terrene Plane. Dazzle was the first person to discover these creatures.

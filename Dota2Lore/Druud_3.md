@@ -1,0 +1,1 @@
+Upland Druud is also home to a group of Oglodi, who are all that remains of an ancient tribe. Upland Oglodi are often besieged by kingdoms to the south of Druud.

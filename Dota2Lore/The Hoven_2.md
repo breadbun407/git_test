@@ -1,0 +1,1 @@
+The Hoven is ruled by the benevolent king-mage Sutherex. Among his subjects is Clinkz, a sworn protector of the land. Trolls live in underground caverns beneath the Hoven. Jah'rakal is from the Hoven, but now roams the world.

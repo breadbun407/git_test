@@ -1,0 +1,1 @@
+Floating cell, chained to the sea floor

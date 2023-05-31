@@ -1,0 +1,1 @@
+The Bleeding Hills is a highland, located next to The Hoven. Black tar flows down from the hills, eventually collecting in pools in The Hoven.

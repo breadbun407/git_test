@@ -1,0 +1,1 @@
+Huskar almost reached his apotheosis when he was willingly sacrificed to the Nothl Realm but was painfully reprieved by a deep incantation cast upon him by Dazzle. He returned with nigh-immortality and the ability to draw strength from his injuries. According to Inai, the Nothl is a "playground" to Huskar.

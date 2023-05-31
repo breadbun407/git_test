@@ -1,0 +1,1 @@
+Seasoned acolytes of the Order can perform the  Shallow Grave rite, preventing the death of its recipient no matter how close they are to their death. The ritual works by preserving the faintest spark of life that remains in a dying person's heart to restart it. It seems that the darkness of the Nothl is behind the spell's power.

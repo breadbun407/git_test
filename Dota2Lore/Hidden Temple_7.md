@@ -1,0 +1,1 @@
+The Hidden Temple is interested in recruiting assassins, including  Nyx Assassin. Those marked for death are often guilty of uncovering secrets, especially ones forbidden by the Hidden Ones.

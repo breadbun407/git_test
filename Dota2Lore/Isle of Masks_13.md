@@ -1,0 +1,1 @@
+Snapfire was old enough to have visited this island before it was deluged. She thought that it was a beautiful place, but she also thought that the people there were dumb.

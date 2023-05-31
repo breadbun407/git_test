@@ -1,0 +1,1 @@
+Krimwohl is a kingdom in the outlands. It was surrounded by a once verdant forest where Hoodwink was born and raised in, which is just south to the misty Wood Tomo'kan.

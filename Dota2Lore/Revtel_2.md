@@ -1,0 +1,1 @@
+The seat of merchants and tradesmen, Revtel is known for its fabulous wealth and luxuries. At the same time, its cutthroat dealings and dog-eat-dog environment are notorious throughout the world. Etiquette and laborate social rituals are observed, yet murder is common. The residents of Revtel indulge in delicacies, including the flesh of Pyrexae Dragons.

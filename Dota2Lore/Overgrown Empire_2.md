@@ -1,0 +1,1 @@
+The day/night ambient sounds are layered on top of the soundscapes of the equipped Weather Effect.

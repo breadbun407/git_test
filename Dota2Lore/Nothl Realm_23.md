@@ -1,0 +1,1 @@
+The  Nullifier was said to be stolen from an inverse dimension, possibly referring to the Nothl Realm.

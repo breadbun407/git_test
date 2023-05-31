@@ -1,0 +1,1 @@
+This terrain is exclusive to players who own The International 2019 Battle Pass and leveled it to 160.

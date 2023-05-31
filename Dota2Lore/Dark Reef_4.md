@@ -1,0 +1,1 @@
+Murderous Slithereen, treacherous Deep Ones, and sociopathic Meranths are kept in the prison. Contraband gems are sometimes smuggled into Dark Reef.

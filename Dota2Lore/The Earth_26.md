@@ -1,0 +1,1 @@
+The earth is the abode of the dead because it's where the living return to once they've had their time, making it vital in necromancy that involves controlling corpses.

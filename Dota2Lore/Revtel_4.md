@@ -1,0 +1,1 @@
+The Sisters of the Veil have performed shady actions in Revtel, most likely assassinations. At first, these incidents were secret, but have now spread by word of mouth. Donte Panlin, having heard of the incidents, warns Mortred that Revtel's rulers would be most displeased with her order's actions.

@@ -1,0 +1,1 @@
+Piling more mystery and doubt on  Enigma's true identity is his status as an elemental who returns to the “elemental force” when he dies to reform himself.

@@ -1,41 +1,38 @@
 import os
+import re
 import requests
 from bs4 import BeautifulSoup as bs
 
+url = "https://dota2.fandom.com/wiki/Abysm"
+response = requests.get(url)
+if response.status_code == 200:
+    # Parsing the HTML
+    soup = bs(response.content, 'html.parser')
 
+    # Extract the title from the HTML
+    title = soup.find('h1').get_text(strip=True)
 
+    # Find the relevant <p> tags or adjust as per the target HTML structure
+    paragraphs = soup.find_all('p')
 
-with open('links.txt', 'r') as file:
-    link_names_list = file.read().splitlines()
+    # Save the scraped paragraphs to individual files
+    directory = 'Dota2Lore'
+    if not os.path.exists(directory):
+        os.makedirs(directory)
 
-    base_url = 'https://dota2.fandom.com'  # Replace with the base URL of the website
+    for idx, paragraph in enumerate(paragraphs):
+        # Remove references in the form of [1], [2], etc.
+        text = re.sub(r'\[\d+\]', '', paragraph.get_text())
 
-    complete_urls = []
-    for urls in link_names_list:
-        complete_url = "https://dota2.fandom.com/wiki/Abysm"
-        
+        # Add a space after a bold tag if the text is directly wrapped by <b> tags
+        if '<b>' + text + '</b>' == paragraph.prettify():
+            text = ' ' + text + ' '
 
-    # Making a GET request
-    for url in complete_urls:
-        response = requests.get(url)
-        if response.status_code == 200:
-        # Parsing the HTML
-            soup = bs(response.content, 'html.parser')
+        # Trim leading and trailing whitespace
+        text = text.strip()
 
-            lines = soup.find_all('p')
-            scraped_data = []
-            scraped_data.append(lines)
-            for line in scraped_data:
-                title = line["title"]
-                paragraph = line["paragraph"]
+        filename = f"{title}_{idx + 1}.md"
+        file_path = os.path.join(directory, filename)
 
-                # Generate a filename based on the title
-                filename = f"{title}.md"
-                directory = '/Dota2Lore'
-                file_path = os.path.join(directory, filename)
-
-                # Open a file in write mode
-                with open(file_path, 'w') as file:
-                    # Write the paragraph to the file in Markdown format
-                    file.write(f"# {title}\n\n")
-                    file.write(f"{paragraph}\n")
+        with open(file_path, 'w') as file:
+            file.write(text)

@@ -1,0 +1,1 @@
+Although inhabitants of the Nightsilver Woods are calm today, they have had a complicated history of politics and violence.

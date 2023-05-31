@@ -1,0 +1,1 @@
+The Inner Colonnade is where the Vigil Knights keep their sacred relic, the Holy Flame. It may be part of, or near the Vigil Keep. The Flameguard sect is stationed in the Inner Colonnade, where they oversee the protection of the Holy Flame.

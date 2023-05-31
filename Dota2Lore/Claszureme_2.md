@@ -1,0 +1,1 @@
+Chronite, a mineral that exists outside of time, can be found on the edges of Claszureme. Jewels that manipulate time can be found as well, although they are rare. The Claszureme Hourglass likely also comes from this realm.

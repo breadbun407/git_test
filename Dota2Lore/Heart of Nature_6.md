@@ -1,0 +1,1 @@
+Judging by these impure elements of nature, the heart of nature is also hostile, polluted, and broken down to the point of fragility, truly making this plane a realm of utter chaos.

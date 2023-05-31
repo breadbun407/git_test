@@ -1,0 +1,1 @@
+The temple was found through a secret door that "exists in nature itself". According to Lanaya, the average person cannot see the temple's entrance. Furthermore, she hints that the temple steps is where "mind meets matter."

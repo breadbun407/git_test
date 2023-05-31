@@ -1,0 +1,1 @@
+But this idea was dropped in favor of the 2D map found in Source 1 because there were no people or time to work on such a complex idea. An additional problem was figuring out the coordinates where these regions would be placed in these complex maps. Although Laidlaw found the final one disappointing, he did find it easier to understand.

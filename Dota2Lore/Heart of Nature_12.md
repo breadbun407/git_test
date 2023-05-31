@@ -1,0 +1,1 @@
+Judging by the kinds of people who know or are related with the place, the heart of reality is known to and meant for nihilists only. After all, mere knowledge of this plane is enough to turn anyone into a pessimistic nihilist, such as Leshrac.

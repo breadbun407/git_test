@@ -1,0 +1,1 @@
+Soon after, Karroch, who worked in the royal menagerie, set all the beasts in the menagerie loose, mauling the king in the process. The kingdom of Slom fell after its last king died.

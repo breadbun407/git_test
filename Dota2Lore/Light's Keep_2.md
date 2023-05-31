@@ -1,0 +1,1 @@
+Little is known about this Keep, as the only being that we hear this place from says little about it. Judging by this name, Light's Keep might be a heavily fortified place akin to a fortress or a castle. Apparently, the so-called "Light" that Ezalor keeps can be found here.

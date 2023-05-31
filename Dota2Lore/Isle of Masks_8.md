@@ -1,0 +1,1 @@
+Crex vo Gali, a mysterious entity, eats the grotesques who are fed to him as mulch.

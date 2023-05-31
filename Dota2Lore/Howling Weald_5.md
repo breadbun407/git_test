@@ -1,0 +1,1 @@
+To the west of the forest is the labyrinth of the magus Gallaron. Going east will eventually lead one to the Silkmire Pass, which used to be a safe pilgrim's road to the now abandoned Temple of Ermacor.

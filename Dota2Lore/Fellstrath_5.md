@@ -1,0 +1,1 @@
+The ruins of an ancient civilization, now densely covered in creeping vines, lies within the heart of Fellstrath. Once an empire, it fell for reasons unknown. Stone totems with staring faces are dotted throughout the empire, keeping watch over the domain.

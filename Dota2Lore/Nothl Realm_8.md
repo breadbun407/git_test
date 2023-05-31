@@ -1,0 +1,1 @@
+The  Shadow Wave is the most common ritual among the ranks of the Shadow Priests, thanks to its effectiveness which stems from its simplicity. Dazzle's version of this ritual casts a healing light that is actually a hidden sinister evil.

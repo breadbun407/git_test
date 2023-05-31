@@ -1,0 +1,1 @@
+The Dezun Order is the sole mortal faction to have a thorough knowledge of the Nothl Realm and its secrets.

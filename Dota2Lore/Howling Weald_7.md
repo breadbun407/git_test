@@ -1,0 +1,1 @@
+Lucius Longclaw lives in this forest with his canine brethren, the Longclaw clan. He was slain by the four Heroes hired by the Conclave of the Brine, alongside a small group of soldiers led by Commander Targan.

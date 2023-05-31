@@ -1,0 +1,1 @@
+Highseat was the location of several rebel camps, where the legendary thief White Cape resided. According to one rumor, Gondar was able to infiltrate Highseat, hunt down White Cape, and bring him to be judged for his crimes.

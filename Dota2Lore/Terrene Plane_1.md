@@ -1,0 +1,1 @@
+The Terrene Plane is one of The Seven Planes. It is the plane on which most events of Dota 2 take place. It is also referred to as the Material Plane, the Physical Plane, or the Mortal Plane.

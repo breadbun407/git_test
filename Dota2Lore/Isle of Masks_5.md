@@ -1,0 +1,1 @@
+Like all of the masked ones,  Juggernaut was conceived and reared in the Isle of Masks. Now that the Isle has been destroyed, he is the only one left to preserve its memory and rich cultures with his presence in the world of the living.

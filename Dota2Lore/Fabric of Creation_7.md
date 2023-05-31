@@ -1,0 +1,1 @@
+A number of entities keep the fabric safe and maintain it. Only three of them are known, the best known ones being the Weavers, followed by the Loom and the unnamed guardians.

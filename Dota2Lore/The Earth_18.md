@@ -1,0 +1,1 @@
+Named after the common beryl deposits found in these deep caves, the Emerald Abyss is a vast subterranean cave where many lifeforms dwell in.

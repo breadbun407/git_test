@@ -1,0 +1,1 @@
+Qaldin is a desert kingdom near the Scintillant Waste. It is home to a Djinn, who crafted a magical carapace for  Sand King. The Qaldin Assassins have also made their base in the kingdom. Donte Panlin has been to Qaldin, as has Gondar.

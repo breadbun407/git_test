@@ -1,0 +1,1 @@
+The Hazhadal Barrens are also the setting of the Dota 2 comic The Last Castle, where  Axe invades the Fortress of Valhessi.

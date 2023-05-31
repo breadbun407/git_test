@@ -1,0 +1,1 @@
+The  Assault Cuirass was forged in this realm.

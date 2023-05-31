@@ -1,0 +1,1 @@
+Settlements can be found in parts of the desert, most of whom lead a quiet and humble lifestyle. Tired of their troublesome daughter, Lina's parents sent her to live with an aunt in the desert. Many suitors called on Lina, but all have thus far been rejected.

@@ -1,0 +1,1 @@
+One of the cosmic travelers responsible for the death of Earthshaker's sister earth arrived on this earth to finish the job by killing the sister earth's power reincarnating in him.

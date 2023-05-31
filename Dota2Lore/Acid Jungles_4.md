@@ -1,0 +1,1 @@
+Some organisms in the jungle are known to burrow to avoid predators.

@@ -1,0 +1,1 @@
+The southern reaches are akin to Antarctica; complete with bergs, floes, weak summers, and penguins like Whisky. A bit to the north is a waste that's home to a grand dragon.

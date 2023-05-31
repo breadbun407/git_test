@@ -1,0 +1,1 @@
+Qaldin is also known for its cuisine.

@@ -1,0 +1,1 @@
+Some descriptions pertaining to the Outworld heavily imply that it is a celestial body, if not a solid planet or a plane of existence. According to its sole inhabitant, it may also be described as the "oblique world", implying that this place is slanted on the rim of the abyss, facing towards the Void itself so that it will always be facing (and watching) towards it.

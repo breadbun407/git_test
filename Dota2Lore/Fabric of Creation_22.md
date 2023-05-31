@@ -1,0 +1,1 @@
+Time and space bend before the winged  Boots of Travel to work its powers of nigh-omnipresence via teleportation that it grants to its wearer.

@@ -1,0 +1,1 @@
+The Shadeshore Ruins is a location somewhere along the beaches of Shadeshore. It is where  Sven grew up, with his father and his meranth mother. Due to its association with Sven's mother, the Shadeshore Ruins may be inhabited by meranths. Sven wishes to be buried at the Shadeshore Ruins when he dies.

@@ -1,0 +1,1 @@
+The omniscience of the  Void Spirit encompasses even the Nothl Realm.

@@ -1,0 +1,1 @@
+The Overgrown Empire terrain has its own inbuilt Jungle Weather. This means it does not use the Default Weather when having no custom weather equipped.

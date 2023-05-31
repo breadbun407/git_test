@@ -1,0 +1,1 @@
+The city possessed walls and gates, but these defenses were not sufficient in repelling the Protectors. Prior to the attack, there was a flood, which may be unusual given the bay's "placid waves". Few survivors remain from the attack, one of which being Rizzrack, the  Timbersaw.

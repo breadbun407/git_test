@@ -1,0 +1,1 @@
+Aside from Lesale, Beatrix Snapfire is the only hero known to have been to Jidi Isle, and has expressed a desire to return one day.

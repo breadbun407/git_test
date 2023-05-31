@@ -1,0 +1,1 @@
+The War of the Ancients is fought here on Earth and here alone because it is where the Nemesis Stones crashed to.

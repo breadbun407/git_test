@@ -1,0 +1,1 @@
+As the  Arc Warden recovered from the reverberations of the Mad Moon's destruction, Zet made his way to our planet to catch up with his fugitives and their war.

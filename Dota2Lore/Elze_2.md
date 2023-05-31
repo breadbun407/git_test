@@ -1,0 +1,1 @@
+Elze fell after its last ruler was thrown to his death.

@@ -1,0 +1,1 @@
+The Dread Marsh is an area that lies just before the outlands. The waters of the marsh are poisonous.

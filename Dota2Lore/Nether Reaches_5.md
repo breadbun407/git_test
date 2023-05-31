@@ -1,0 +1,1 @@
+Rumors of a possible entrance to this place may dispel the ambiguity, however. It is said that a passage to the sealed Nether Reaches exists between the realms, possibly hinting that the Nether Reaches is both a corporeal and ethereal location due to having a liminal existence between the realms.

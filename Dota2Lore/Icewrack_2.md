@@ -1,0 +1,1 @@
+The peoples of Icewrack may use copper coins as currency. Sapphires are found in the glaciers of Icewrack, and are valued by the artisans of the Frostiron Tribe.

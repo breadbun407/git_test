@@ -1,0 +1,1 @@
+The Dark Moon Horde, in their desire to bring about the Dark Moon cataclysm, entered the Nightsilver Woods and attacked the Temple of Mene while the Dark Moon Order was incapacitated. They were repelled by outside champions, who stepped in to defend the goddess' sanctuary.

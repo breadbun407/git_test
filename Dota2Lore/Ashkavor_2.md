@@ -1,0 +1,1 @@
+Ancestral bloodlines are extremely import in Ashkavor, and imbue the Ashkavorians with magic. At least five major houses exist. Records of events throughout the land are kept by elders.

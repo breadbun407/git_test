@@ -1,0 +1,1 @@
+According to the  Tome of Knowledge, the Jidi Isle have a thriving touristry.

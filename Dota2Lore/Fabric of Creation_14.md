@@ -1,0 +1,1 @@
+Despite appearing as a brutish creature, the  Spirit Breaker is capable of bending aspects of nature to his iron will, a prowess that is  a combination of his cunning and strength.

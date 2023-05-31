@@ -1,0 +1,1 @@
+The Helio Imperium is a location frequently mentioned by Davion. Stonehall plans to conquer the Helio Imperium. Something happened in this place, which involved Lina and Davion. There is a "Shoehorn" in this place, where a person that resembles the Alchemist (either referring to Razzil or the ogre, the latter made a cameo appearance in Dota: Dragon's Blood) lives in.

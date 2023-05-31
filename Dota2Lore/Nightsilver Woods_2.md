@@ -1,0 +1,1 @@
+When the Nightsilver Woods were barely formed, a single shard of fell from the moon, and the Shrine of Selemene was erected at that very location. The Temple of Mene was also built later in the forest.

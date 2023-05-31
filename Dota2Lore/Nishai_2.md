@@ -1,0 +1,1 @@
+Earthshaker hails from Nishai, where he lay dormant until one particular earthquake shook him awake. His magical totem is also of Nishian origin, although what special properties this confers is unclear. Gargoyles also inhabit Nishai, and are known to have befriended Earthshaker.

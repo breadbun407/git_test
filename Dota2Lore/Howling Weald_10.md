@@ -1,0 +1,1 @@
+A small group of soldiers from Kalabor Desert, led by the mercenary leader Commander Targan, set up camp in the Weald to prepare for the refugees' arrival from the desert. With the death of Lucius Longclaw, the wildlands are safe for the refugees of Kalabor to settle in.

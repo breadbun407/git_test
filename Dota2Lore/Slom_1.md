@@ -1,0 +1,1 @@
+Slom was a kingdom. It was a society divided into castes, with families like the House of Ambry making up part of the important landed caste. A royal menagerie of wondrous beasts was kept by its King.

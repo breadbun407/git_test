@@ -1,0 +1,1 @@
+Siltbreaker has seen the Nothl Realm and is unimpressed by what he saw.

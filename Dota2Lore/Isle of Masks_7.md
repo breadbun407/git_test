@@ -1,0 +1,1 @@
+This isle is the homeland of the secluded and now extinct race of the Masked Ones, the heart of this Isle's culture and tradition.

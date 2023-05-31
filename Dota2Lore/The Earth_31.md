@@ -1,0 +1,1 @@
+The ancestral spirit of nature lies dormant within all plant life. Conduits of its power, such as Rooftrellen, can call upon it to animate his kin and cause an  Overgrowth.

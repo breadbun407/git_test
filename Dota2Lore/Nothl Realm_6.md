@@ -1,0 +1,1 @@
+All acolytes to the Order must undergo the Rite of Shades, their final rite of passage which involves a spiritual trip to the Nothl, to be promoted into the ranks of the Shadow Priests. If they complete the dark initiation safely, they will become Shadow Priests, vectors of the Nothl's power into the earthly plane.

@@ -1,0 +1,1 @@
+Few people live in the outlands on account of its dryness and lawlessness. However, bandits have been known to roam the place, and met their end at the hands of Beatrix Snapfire. It may also be the habitat of dragon toads. The keen do not live in the outlands, and the local inhabitants are not good at tinkering with machinery.

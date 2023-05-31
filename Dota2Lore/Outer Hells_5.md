@@ -1,0 +1,1 @@
+Terrorblade is familiar with the demon slave of Demnok, implying he knows this evil demon spirit of the Outer Hells.

@@ -1,0 +1,1 @@
+Icewrack is a frozen land in the north, sometimes known as the Frozen Waste. It is just south of The Barrier, and borders the Northern Sea or the Boiling Sea. The Blueheart Glacier flows through Icewrack. Njord's Hearth may be in or near Icewrack.

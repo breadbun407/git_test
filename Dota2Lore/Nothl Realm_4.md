@@ -1,0 +1,1 @@
+According to Aghanim, Dazzle's powers are a mixture of chakra and chaos magic, possibly referring to the  Chakra Magic of Light and the chaotic energies of Dark. Since Dazzle's powers are from the Nothl Realm, it's possible that  Keeper of the Light and  Chaos Knight may have some connection to this place.

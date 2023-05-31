@@ -1,0 +1,1 @@
+The Seven Hells, also known as the Infernal Regions, are the realms of the underworld, inhabited mostly by demons. All Seven Hells are known for their extreme heat, and are separated by a membrane. Their precise locations and names are uncertain, and may overlap with Vashundol, Foulfell, and the Abysm. The Seven Hells are ruled by the Demon Lords through a series of unknown laws.

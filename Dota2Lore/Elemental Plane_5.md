@@ -1,0 +1,1 @@
+According to Barathrum,  Leshrac is a fellow walker between the planes. But this may be a reference to the planeswalker Leshrac from the Magic: the Gathering card game.

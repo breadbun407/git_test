@@ -1,0 +1,1 @@
+At the depths of our natural world is the very heart of nature itself (also referred to as nature's blasted core, heart of all creation, heart of existence, core of all existence, fundament of nature, core of the universe, etc.), a plane of existence in the world of Dota 2.

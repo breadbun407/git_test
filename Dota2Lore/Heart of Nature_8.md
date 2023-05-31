@@ -1,0 +1,1 @@
+Interestingly, the place chosen for Enigma to receive random item drops is the "fundament of nature" or the "core of the universe" where things he calls “treasures” spring from.

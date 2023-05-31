@@ -1,0 +1,1 @@
+Thorny and stone-hard fungi that resemble mushroom caps grow here. They are also said to be unnatural, maybe because they grew beyond their homeworld on Leshrac's body or the world they're from is unnatural. As one of the growths on his form, they may be sustained by the tainted waters that also gave him his other growths, like his arm's branches.

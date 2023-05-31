@@ -1,0 +1,1 @@
+The Brewmaster instructs  Storm Spirit to bury him beneath the Ruined City, hinting at a shared background from their early days.

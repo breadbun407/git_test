@@ -1,0 +1,1 @@
+Ridged, climbing vines that are said to be a “twisted sort of wisdom” grow here, feeding and thriving off of their host's anguish, black thoughts, and foul deeds.

@@ -1,0 +1,1 @@
+Candoness is a kingdom in the Dota 2 world. The current king of Candoness is Tansis XIII. His father is Tansis XII, who passed away before his son's coronation. His mother is Dowager Queen Tansis XII. The kings of Candoness wear the Candonite Crown.

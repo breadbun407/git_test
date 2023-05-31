@@ -1,0 +1,1 @@
+Maelrawn is said to be the one who “cracked the shell of the world” by the Naga Siren. Perhaps his tentacles bore through the earth itself, but who knows?

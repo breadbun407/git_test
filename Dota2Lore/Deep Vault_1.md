@@ -1,0 +1,1 @@
+The Deep Vault is an underwater location which contains innumerable treasures of the sunken cities. It is guarded by the Deep Ones, among which is  Slardar. The guardians are identifiable from their spinal crests, which serve as warning to thieves.

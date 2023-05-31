@@ -1,0 +1,1 @@
+As an usher to all kinds of afterlife,  Visage's purview extends to the Nothl Realm.

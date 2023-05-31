@@ -1,0 +1,1 @@
+Mireska's family owns verdant gardens in Roseleaf. She describes seeing Strygwyr once in the city, but avoided him because she didn't want to get murdered.

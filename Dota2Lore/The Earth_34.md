@@ -1,0 +1,1 @@
+Not only is the  Dark Seer lost from his home reality after traversing and locking the maze between the universal walls, but he is also trapped on this planet.

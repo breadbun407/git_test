@@ -1,0 +1,1 @@
+There are also other kinds of fabrics in existence that have no known corresponding threads. Because of this, it's unknown if they are actually part of the cosmic tapestry, but, they will be listed here just in case.

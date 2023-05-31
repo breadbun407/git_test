@@ -1,0 +1,1 @@
+The  Primal Beast was banished to our universe by would-be masters who failed to control him. Of all the places in creation, he was first sent to this planet in the Tomo'kan.

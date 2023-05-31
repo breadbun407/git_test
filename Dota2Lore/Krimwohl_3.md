@@ -1,0 +1,1 @@
+The Toy Butcher was created when an enchanter from Weeping Rose was summoned to Krimwohl at the request of an unnamed girl who wanted a doll that was imbued with Pudge's imperishable essence.

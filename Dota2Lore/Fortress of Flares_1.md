@@ -1,0 +1,1 @@
+The Fortress of Flares is a structure located within the Wailing Mountains, likely near the Ruined City. It was once a training ground for new warriors, headed by the renowned Xin, who taught his pupils the Bonds of the Guardian Flame. A sealed temple can be found inside the fortress grounds. The fortress is now abandoned, and its buildings overgrown.

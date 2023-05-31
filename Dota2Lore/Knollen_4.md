@@ -1,0 +1,1 @@
+Knollen is known for its midsummer carnivals, where games like target shooting can be played, and tickets won.

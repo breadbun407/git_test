@@ -1,0 +1,1 @@
+Knollen is a land of mountainous valleys. It is inhabited by Keen, and is the homeland of Kardel Sharpeye, the  Sniper. Steepstalkers live among its peaks, as do Trolls, which are sometimes shot at by the Keen.

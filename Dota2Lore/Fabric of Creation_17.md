@@ -1,0 +1,1 @@
+The effect's of  Warlock's  Upheaval can manipulate space-time over a vast area, impairing entire armies.

@@ -1,0 +1,1 @@
+Clothes that are woven in complete darkness can channel the essence of the Nothl Realm into its weave. Because of this magic, it's believed that the garments' enchantments will grow stronger as it ages. These holy garments are revered for their hallowed creators and catalysts of heightened Nothlic power.

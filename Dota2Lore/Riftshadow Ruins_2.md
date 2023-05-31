@@ -1,0 +1,1 @@
+It often rains in the Riftshadow Ruins. Fields of spores lay underneath the ruins.

@@ -1,0 +1,1 @@
+A malfunction with the reality warping Continuum Device opened the paths to many realms and dimensions in the Continuum Vault, including the Weald of Torment, which is implied to be in the heart of nature. The nihilist Ash the Defiler lives in this forest.

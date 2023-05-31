@@ -1,0 +1,1 @@
+Gondar has dealings with the merchant kings of Revtel, one of which may be to bring Mireska back to her father.

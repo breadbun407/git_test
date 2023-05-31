@@ -1,0 +1,1 @@
+After the battle at the forests, Davion was taken in by Kaden, bound in chains to Dragon Hold and kept him prisoner.

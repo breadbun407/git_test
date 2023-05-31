@@ -1,0 +1,1 @@
+The west is home to several forests, such as the high woods beyond the Vale of Augury and the woods that house the village of Zaru'Kina. The drylands are western as well.

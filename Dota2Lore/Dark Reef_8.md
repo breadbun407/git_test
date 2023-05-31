@@ -1,0 +1,1 @@
+According to Slark, the Dark Reef will one day "rise", although what this means exactly is unknown.

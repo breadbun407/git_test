@@ -1,0 +1,1 @@
+Solely based on the plants that grow on Leshrac's body—which is completely at one with this realm and thus it's a reflection of what may grow in there—the heart of nature seems to have its own plant life, just like the natural plane that it supports.

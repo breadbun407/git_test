@@ -1,0 +1,1 @@
+Only the Ascended Ones before Grimstroke remain, hiding and weakened by the ink tide, biding their time in wait for the opportunity to restore their people one day.

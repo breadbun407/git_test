@@ -1,0 +1,1 @@
+Dazzle is the youngest Hero to access the Nothl Realm. His time spent in the Nothl Realm has granted him a strong connection to that world, blessing him with the power to wield its inverted elements. Exploiting his deep connection to this realm, he often visits the Nothl for his experiments such as turning his deficiencies into a source of strength.

@@ -1,0 +1,1 @@
+Luminescent lotuses grow in the forest, inside silvery pools. These lotuses are considered sacred to Selemene, and are fiercely guarded from thieves by  Mirana.
