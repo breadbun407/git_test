@@ -1,5 +1,6 @@
 import matplotlib.pyplot as plt
 import seaborn as sns
+from datetime import datetime
 
 # Sample data (replace this with your extracted and prepared data)
 timeline_data = [
@@ -16,12 +17,12 @@ sns.set()
 fig, ax = plt.subplots()
 
 for index, event in enumerate(timeline_data):
-    start_date = event["start_date"]
-    end_date = event["end_date"]
+    start_date = datetime.strptime(event["start_date"], "%Y-%m-%d")
+    end_date = datetime.strptime(event["end_date"], "%Y-%m-%d")
     event_name = event["event"]
     
     # Plot a horizontal bar for each event
-    ax.barh(index, width=(end_date - start_date), left=start_date, height=0.5, align='center')
+    ax.barh(index, width=(end_date - start_date).days, left=start_date, height=0.5, align='center')
     # Add event name as a label
     ax.text(start_date, index, event_name, ha='right', va='center')
 
