@@ -103,3 +103,4 @@ plt.yticks(y_coords, [event["event"] for event in timeline_data])
 
 # Show the plot
 plt.show()
+>>>>>>> c90193772a4d7d7180be533f23c637fddf54245d
